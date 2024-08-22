@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing the Insurance Industry: AI-Driven Underwriting Solutions"
-date: 2024-08-20 21:35:52
-updated: 2024-08-22 12:44:39
+date: 2024-08-21T15:20:48.160Z
+updated: 2024-08-22T15:20:48.160Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e52d2b220bf33233df1f453020b7bd5deb6b55f7ce3cda5235088e19c60778b1.jpg
@@ -27,8 +27,18 @@ Vice President - Head of Product Marketing, **ABBYY**
 
 ![Kathy Mahaney](https://static2.abbyy.com/abbyycommedia/35578/proctergamble-forspeakers-56x56.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![Kathy Mahaney](https://static1.abbyy.com/abbyycommedia/32334/kathymahaney-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Kathy Mahaney
 
 IT Director - SPPO Smart Automation, **Procter & Gamble**
@@ -50,15 +60,24 @@ Join Neil Ward Dutton from IDC, Dermot McCauley from Lithe, and ABBYY’s Proces
 
 ### Watch now
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![Insurance New Cover 643X363](https://static2.abbyy.com/abbyycommedia/34765/insurance-new-cover-643x363.png)](https://www.youtube.com/watch?v=cdxWxFllbWU) 
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)

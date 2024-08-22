@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Success Story: How Metro AG Enhanced Its Operations with Digital Solutions"
-date: 2024-08-21 11:21:46
-updated: 2024-08-22 10:48:52
+date: 2024-08-21T15:20:49.082Z
+updated: 2024-08-22T15:20:49.082Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/337350c11ae587c77e044eafd70c0e67c4637d755652a56d2cc4cf20f4740048.png
@@ -41,3 +41,7 @@ Case Study | Wholesale Challenge • METRO AG is an international wholesale comp
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->

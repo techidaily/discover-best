@@ -1,7 +1,7 @@
 ---
 title: "Toshiba's Latest Tec Series: Incorporating Advanced ABBYY OCR for Improved Document Processing"
-date: 2024-08-21 23:46:42
-updated: 2024-08-22 10:41:48
+date: 2024-08-21T15:20:49.020Z
+updated: 2024-08-22T15:20:49.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f47c079fa1fce90a8221b9c2c003a393b4231e2fbb42dbd4e99eb8971ba63ab6.jpg
@@ -59,3 +59,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->

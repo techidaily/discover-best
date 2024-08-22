@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization with the Help of Cookiebot Technology
-date: 2024-08-21 19:43:53
-updated: 2024-08-22 10:15:55
+date: 2024-08-21T15:20:48.008Z
+updated: 2024-08-22T15:20:48.008Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5497305e7ede52ac11b29b1b9923a18c5f2da5c481f0266449b3910934d0e548.jpg
@@ -45,6 +45,9 @@ IDP can replace manual processing–enabling not only automation, but also creat
 
 Implementing a banking digital transformation strategy leveraging low-code / no-code solutions can really change the game, thanks to the advancements of artificial intelligence (AI), machine learning (ML), and natural language processing (NLP).
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## Leverage the power of the Marketplace
 
 According to [Forrester](https://www.forrester.com/report/How-To-Succeed-With-Marketplace-Business-Models-In-Financial-Services/RES118694), successful financial institutions will take advantage of partners’ capabilities to move quickly and harness the innovation of others. That is precisely the idea behind the new [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), the first digital marketplace for processing and understanding enterprise documents that provides a rich collection of skills, connectors, and assets. Four of the top U.S. banks and many cloud-based companies are providing their business users and citizen developers the best-in-class document and content processing with our easy-to-use, configurable, and pluggable platform, which is ready to use within minutes.
@@ -57,8 +60,16 @@ According to [Forrester](https://www.forrester.com/report/How-To-Succeed-With-Ma
 
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 Cheryl Chiodi
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

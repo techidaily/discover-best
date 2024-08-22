@@ -1,7 +1,7 @@
 ---
 title: "ABBYY's Artificial Intelligence Conference: Revolutionizing the Game of Soccer"
-date: 2024-08-19 15:38:44
-updated: 2024-08-22 11:54:34
+date: 2024-08-21T15:20:49.475Z
+updated: 2024-08-22T15:20:49.475Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -108,3 +108,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Leveraging Advanced Technology for Social Good: ABBYY Partners With ForHumanity to Foster Autonomous AI Monitoring Systems"
-date: 2024-08-19 15:28:25
-updated: 2024-08-22 11:17:35
+date: 2024-08-21T15:20:50.314Z
+updated: 2024-08-22T15:20:50.314Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1c4a4d46a04bc65b65a32c086aba8a7780a0882996e03bd33c00c34f29d107d4.jpg
@@ -51,6 +51,9 @@ ABBYY puts your information to work with purpose-built AI. We combine innovation
 
 _ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners._
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### About For­Humanity
 
 ForHumanity (<https://forhumanity.center/>) is a 501(c)(3) nonprofit organization and ForHumanity Europe, a French 1901 Association, are dedicated to addressing the Ethics, Bias, Privacy, Trust, and Cybersecurity in artificial intelligence and autonomous systems. ForHumanity uses an open and transparent process that draws from a pool of over 2000+ contributors from 96 countries to construct audit criteria, certification schemes, and educational programs for legal and compliance professionals, educators, auditors, developers, and legislators to mitigate bias, enhance ethics, protect privacy, build trust, improve cybersecurity, and drive accountability and transparency in AI and autonomous systems. ForHumanity works to make AI safe and trustworthy for all people.

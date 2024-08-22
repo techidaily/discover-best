@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY: Top Contender in Everest Group's IDP Peak Matrix 2Er 2023 Evaluation"
-date: 2024-08-21 15:42:36
-updated: 2024-08-22 11:13:14
+date: 2024-08-21T15:20:48.639Z
+updated: 2024-08-22T15:20:48.639Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1cfdb45880b22613393e076dccb2e4b9121be109b6dcfeb0d6890b8517504874.jpg
@@ -23,6 +23,9 @@ ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des 
 
 **ABBYY est très bien positionné pour son efficacité en termes de Vision & de Capacités, ainsi que pour son impact sur le marché avec ABBYY Vantage. Vantage est la seule plateforme IDP low-code / no-code pouvant s’intégrer à n’importe quelle plateforme d’automatisation intelligente.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Télécharger le rapport maintenant
 
 Dans le monde entier, les organisations s’appuient sur la PEAK Matrix pour évaluer les meilleures solutions IDP, capables de comprendre les documents des entreprises et d’en trouver la signification à la façon des êtres humains.
@@ -33,8 +36,14 @@ La PEAK Matrix donne un cadre pour évaluer la réussite relative sur le marché
 
 _Vaibhav Bansal, Vice-Président, Everest Group_
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Request information
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
 [Lire le rapport](https://global.abbyy.com/hubfs/documents/content/report-intelligent-document-processing-everest-group-2023-en.pdf "Read the report") 

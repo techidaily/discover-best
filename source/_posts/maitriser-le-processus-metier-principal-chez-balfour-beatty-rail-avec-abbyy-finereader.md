@@ -1,7 +1,7 @@
 ---
 title: Maîtriser Le Processus Métier Principal Chez Balfour Beatty Rail Avec ABBYY FineReader
-date: 2024-08-19 11:52:21
-updated: 2024-08-22 11:58:27
+date: 2024-08-21T15:20:49.756Z
+updated: 2024-08-22T15:20:49.756Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805175841dc09638ed49d803c3.jpg
@@ -100,6 +100,10 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

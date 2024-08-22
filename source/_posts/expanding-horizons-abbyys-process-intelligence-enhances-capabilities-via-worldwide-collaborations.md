@@ -1,7 +1,7 @@
 ---
 title: "Expanding Horizons: ABBYY's Process Intelligence Enhances Capabilities via Worldwide Collaborations"
-date: 2024-08-21 11:41:34
-updated: 2024-08-22 11:44:39
+date: 2024-08-21T15:20:48.468Z
+updated: 2024-08-22T15:20:48.468Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec64675cc9c86f982f27e5ed1c09.jpg
@@ -77,3 +77,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->

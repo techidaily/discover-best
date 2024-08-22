@@ -1,7 +1,7 @@
 ---
 title: "ABBYYのAI駆使したドキュメント管理解決策:学習型自動レイアウトと情報抜き出し - ABBYYブログ"
-date: 2024-08-19 15:29:25
-updated: 2024-08-22 10:52:23
+date: 2024-08-21T15:20:48.678Z
+updated: 2024-08-22T15:20:48.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b6771ffcd18a8d5ccdaa894f672.jpg
@@ -42,6 +42,9 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30091/pic-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 各サンプル画像に対し、仕分けしたいクラス（文書定義）を選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30092/pic-4.png)
@@ -50,42 +53,69 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30093/pic-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. 仕分けトレーニング（仕分け学習）とトレーニング結果の設定
 
 ステップ2で仕分けトレーニングの準備が整いましたので、学習ボタンをクリックし、トレーニングを実行、結果を確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30094/pic-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 結果に問題なければ、トレーニング結果を認識処理時に適用する設定を実施します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30095/pic-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. 作業バッチで結果を確認
 
 作業バッチでテスト画像を読み込み、正しく仕分けが行われることを確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30096/pic-8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 では、次にAI自動学習によるデータ抽出についてご紹介いたします。  
 データ抽出設定・確認方法は、次の4ステップになります。  
 ※文書仕分けについては既に設定済である事を前提とします。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. フィールド追加
 
 対象の文書定義にトレーニングしたいフィールドを追加します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30097/pic-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. データ抽出用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションのフィールド抽出用トレーニングバッチで新規バッチを作成します。その際、「文書定義セクションの選択」で該当する文書定義 > セクションを選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30098/pic-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 次に、作成したバッチにトレーニング用のサンプル画像ファイルを読み込み、認識を実行します。また、それぞれのサンプル画像に対し「学習用」「テスト用」を設定します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30099/pic-11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. フィールド抽出トレーニングの実施
 
 「学習用」のサンプルドキュメントに対し、各フィールドの正しい位置をクリック、または囲い込みにより指定します。

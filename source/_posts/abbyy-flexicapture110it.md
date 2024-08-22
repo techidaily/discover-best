@@ -1,7 +1,7 @@
 ---
 title: インボイスを超速化！ABBYY FlexiCapture®で処理時間1/10、企業IT進化のカギ
-date: 2024-08-19 17:55:21
-updated: 2024-08-22 10:45:45
+date: 2024-08-21T15:20:48.209Z
+updated: 2024-08-22T15:20:48.209Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5dde8e23432eb9faea6481b1841af4ec33dc75da64317f31b7964d607abcd74.jpg
@@ -141,6 +141,9 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

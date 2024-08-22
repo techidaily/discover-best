@@ -1,7 +1,7 @@
 ---
 title: Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition
-date: 2024-08-20 22:50:21
-updated: 2024-08-22 12:46:19
+date: 2024-08-21T15:20:48.917Z
+updated: 2024-08-22T15:20:48.917Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d998ed1ce4fa21b446a75f0e6c9a8cf84aeb11cbd732d7f1223ebbfd05a07e14.jpg
@@ -66,3 +66,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->

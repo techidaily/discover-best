@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics and Personalization"
-date: 2024-08-21 11:57:55
-updated: 2024-08-22 11:21:27
+date: 2024-08-21T15:20:48.763Z
+updated: 2024-08-22T15:20:48.763Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae043dca04e140a16eeec969f.jpg
@@ -83,6 +83,9 @@ Gartner Magic Quadrant
 
 IA Month
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 
 
 #### September is Intelligent Automation Month
@@ -115,6 +118,9 @@ The leader in AI-based intelligent document processing and process mining techno
 
 [![For Video](https://static1.abbyy.com/abbyycommedia/32356/for-video.jpg)](https://www.youtube.com/watch?v=OUr3jexLu7M) 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What the analysts say
 
 [All reports](https://tools.techidaily.com/abbyy/products/) 
@@ -139,12 +145,18 @@ The leader in AI-based intelligent document processing and process mining techno
 
 ![11 01 23 Vertical Isg Report 2022](https://static1.abbyy.com/abbyycommedia/36781/11-01-23-vertical-isg-report-2022.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ### ABBYY Named a Leader of Process Mining in the 2022 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report
 
 [Check out the report](https://tools.techidaily.com/abbyy/products/) 
 
 0/0 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Transform your entire business
 
 Gain the valuable, yet often hard to attain, insight into your operations that enables true business transformation.
@@ -155,8 +167,14 @@ See what ABBYY smart technologies can do for your industry:
 
 [![04B Healthcare](https://static2.abbyy.com/abbyycommedia/31316/04b-healthcare.jpg) Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![02B Transportationandlogistics](https://static1.abbyy.com/abbyycommedia/31318/02b-transportationandlogistics.jpg) Transportation & Logistics](https://www.abbyy.com/solutions/transportation/ "Transportation & Logistics") 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 [Government](https://tools.techidaily.com/abbyy/products/) 
 
 [Legal](https://tools.techidaily.com/abbyy/products/) 
@@ -175,14 +193,35 @@ See what ABBYY smart technologies can do for your industry:
 
 [![Logo Automation Anywhere 149X52](https://static2.abbyy.com/abbyycommedia/29781/logo-automation-anywhere-149x52.svg)](https://www.abbyy.com/solutions/technology/automation-anywhere/)[![Logo Blueprism 159X46](https://static4.abbyy.com/abbyycommedia/29782/logo-blueprism-159x46.svg)](https://tools.techidaily.com/abbyy/products/)[![Logo Deloitte 162X30](https://static3.abbyy.com/abbyycommedia/29783/logo-deloitte-new-162x30.svg)](https://www.abbyy.com/customer-stories/deloitte-extends-the-capabilities-of-their-ediscovery-suite-with-the-help-of-abbyy-recognition-server/)[![Logo Intuit Color](https://static5.abbyy.com/abbyycommedia/29785/logo-intuit-color.svg)](https://www.abbyy.com/customer-stories/abbyy-flexicapture-engine-makes-tax-time-relax-time/)[![Logo Mcdonalds 75X60](https://static1.abbyy.com/abbyycommedia/29787/logo-mcdonalds-75x60.svg)](https://www.abbyy.com/customer-stories/mcdonalds-relies-on-abbyy-ocr-technology-to-power-mobile-app/)[![Logo Mfiles Color](https://static5.abbyy.com/abbyycommedia/29789/logo-mfiles-color.svg)](https://www.abbyy.com/company/news/m-files-integrates-artificial-intelligence-technology-from-abbyy-to-further-automate-information-management/)[![Siemens Logo 163X26](https://static2.abbyy.com/abbyycommedia/30453/siemens-logo-163x26.svg)](https://www.abbyy.com/webinars/on-demand/siemens-global-business-services-intelligent-document-automation-journey/)[![Logo Pega 204X44](https://static1.abbyy.com/abbyycommedia/29791/logo-pega-204x44.svg)](https://www.abbyy.com/solutions/technology/pegasystems/)[![Logo 3M 90X48](https://static2.abbyy.com/abbyycommedia/29780/logo-3m-90x48.svg)](https:/company/news/3m-360-encompass-system-for-healthcare-now-with-text-recognition-from-abbyy/)[![Logo Yum 80X66](https://static2.abbyy.com/abbyycommedia/29800/logo-yum-80x66.svg)](https://www.abbyy.com/customer-stories/financial-shared-services-center-of-yum-china-reaches-a-new-level-with-abbyy-flexicapture/)[![Logo Volkswagen 66X66](https://static4.abbyy.com/abbyycommedia/29799/logo-volkswagen-66x66.svg)](https://www.abbyy.com/customer-stories/volkswagen-corporation-tests-its-infotainment-systems-by-using-abbyy-finereader-engine/)[![Logo Uipath 130X44](https://static4.abbyy.com/abbyycommedia/29798/logo-uipath-130x44.svg)](https://www.abbyy.com/solutions/technology/uipath/)[![Logo Microsoft 159X34](https://static4.abbyy.com/abbyycommedia/29790/logo-microsoft-159x34.svg)](https://www.abbyy.com/solutions/technology/sharepoint/)[![Logo Sap 101X50](https://static4.abbyy.com/abbyycommedia/29797/logo-sap-101x50.svg)](https://www.abbyy.com/solutions/technology/sap/)[![Logo Ricoh Color](https://static1.abbyy.com/abbyycommedia/29795/logo-ricoh-color.svg)](https://www.abbyy.com/company/news/abbyy-finereader-engine-selected-for-ricoh-s-award-winning-documentmall/)[![Logo Pwc 98X74](https://static2.abbyy.com/abbyycommedia/29794/logo-pwc-98x74.svg)](https://www.abbyy.com/customer-stories/pwc-efficiently-automates-financial-document-processing-with-abbyy/)[![Logo Pepsico 173X40](https://static2.abbyy.com/abbyycommedia/29792/logo-pepsico-173x40.svg)](https://www.abbyy.com/customer-stories/pepsico-automates-invoice-processing-with-abbyy-flexicapture/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Customer success
 
 [All stories](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY selected by Costain as part of its Finance Digitization Strategy
 
 ![Costain Croup PLC](https://static5.abbyy.com/abbyycommedia/31198/costain.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 Costain Group PLC
 
 Construction Civil Engineering
@@ -202,6 +241,13 @@ Paragon Customer
 
 ![Paragon Customer Communications Limited](https://static3.abbyy.com/abbyycommedia/31428/02b-case-2-paragon-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### ABBYY selected by Paragon Customer Communications to drive digital transformation
 
 The ABBYY platform provides Paragon’s inbound business with the tools it needs to support growth, while still providing the best possible service to their clients.
@@ -216,11 +262,17 @@ Document Classification
 
 ![U.S. Food and Drug Administration](https://static4.abbyy.com/abbyycommedia/31570/fda-logo-117x66.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 U.S. Food and Drug  
  Administration
 
 ![U.S. Food and Drug Administration](https://static1.abbyy.com/abbyycommedia/31429/02c-case-3-fda-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ### ABBYY’s platform transforms the U.S. Food and Drug Administration
 
 ABBYY’s platform powers digital transformation in a key government agency, optimizing outcomes so that adverse events are recorded at the speed required in a digital world.
@@ -237,6 +289,9 @@ Document Processing
 
 ### What’s trending?
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Intelligent Process Automation
 
 More companies are saving millions of dollars by turning to Intelligent Process Automation to identify opportunities for automation and work smarter and faster. ABBYY Intelligent Process Automation combines process mining with Intelligent Document Processing to help you transform enterprise data and get the insights you need to improve process efficiency and effectiveness.
@@ -245,6 +300,14 @@ More companies are saving millions of dollars by turning to Intelligent Process 
 
 ![14904 Main Banner458x342](https://static3.abbyy.com/abbyycommedia/35837/14904-main-banner458x342.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![What’s trending?](https://static1.abbyy.com/abbyycommedia/35824/05-homepage-2022-whatstrending.jpg) 
 
 ### Intelligent Document Processing
@@ -255,12 +318,18 @@ Intelligent Document Processing (IDP) has become essential to making end-to-end 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Process Intelligence
 
 Businesses are digging deeper to fully understand their processes to discover new operational efficiencies and improve customer experiences. Our cloud platform for process discovery, process mining, and task mining maximizes the wealth of data contained within your business systems so you can make smart decisions.
 
 [Try ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY news
 
 [Explore the Newsroom](https://tools.techidaily.com/abbyy/products/) 

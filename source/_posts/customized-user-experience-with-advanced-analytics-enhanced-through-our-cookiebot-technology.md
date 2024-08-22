@@ -1,7 +1,7 @@
 ---
 title: Customized User Experience with Advanced Analytics - Enhanced Through Our Cookiebot Technology
-date: 2024-08-20 23:20:36
-updated: 2024-08-22 11:48:36
+date: 2024-08-21T15:20:49.172Z
+updated: 2024-08-22T15:20:49.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d777e58ef4303b664d35aa15bee22af42d07562b2b0bef75f1c8d6d220322ae4.jpg
@@ -21,6 +21,9 @@ The data inside of financial documents represents a wealth of information…but 
 
 With 30 years of experience processing tens of billions of pages for customers globally, ABBYY is not new to addressing the real-word challenges of our customers with AI-based technology. Today, with an online marketplace of ready-to-go, pre-trained document skills, our customers are discovering more and more use cases for quickly extracting value from intelligent document processing solutions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 This ebook shares 10+ use cases for implementing IDP in financial services to eliminate hundreds of hours of manual work, offer services to customers 30 times faster, ensure compliance with regulations, and identify new opportunities to realize cost savings in processes such as  
@@ -31,12 +34,18 @@ This ebook shares 10+ use cases for implementing IDP in financial services to el
    * Customer onboarding
    * Wealth management
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-use-case-financial-services-intelligent-document-processing-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

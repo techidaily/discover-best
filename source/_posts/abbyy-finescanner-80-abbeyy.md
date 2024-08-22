@@ -1,7 +1,7 @@
 ---
 title: 最高のスマホビジネスアプリ集 | ABBYY FineScanner 8.0 詳細解析 - ABBEYYブログ
-date: 2024-08-21 11:26:26
-updated: 2024-08-22 10:35:29
+date: 2024-08-21T15:20:47.819Z
+updated: 2024-08-22T15:20:47.819Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469cd27f4e2765e160c088926b.jpg
@@ -51,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
 
 ## 新しいスマートギャラリーと検索機能の活用
@@ -73,6 +76,18 @@ thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469
 
 デバイスプラットフォームに関係なく、iOSでもAndroidでも、使用可能です。
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iOSデバイスでAR（拡張現実）を使用してドキュメントサイズを測定する
 
 Appleユーザーには少し驚きがありました。 私たちの調査によると、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)ユーザーの半数以上が作成したドキュメントを電子メールまたはメッセンジャーアプリに送信します。これは、ドキュメントをPCに保存するか、印刷することによって起こり得ます。 以前の[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)バージョンでは、アプリから直接ドキュメントを印刷すると、画像がページ全体に拡大されてしまいましたが、これは不十分でした。
@@ -88,6 +103,9 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ドキュメントのサイズが標準サイズの1つ（A4や運転免許証など）に対応している場合、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)では、その特定のサイズのドキュメントとして扱われるようにドキュメントを設定するかどうかの確認が求められます。 非標準サイズのドキュメントの場合、あとで使用するために検出されたサイズを保存することを選択できます。 これを行うためには、検出されたドキュメント測定値をタップし、「リストに保存」を「オン」に切り替えます。 それが完了したら、「Flyer」など、新しいフォーマットの名前を指定します。
 
 [FineScannerアプリを更新](https://fsfree.onelink.me/RsYZ/fs8blogjp)して頂くことで、これらすべての新機能をすぐにお試し頂けます。AppStoreとGooglePlayの両方のアプリケーションページでフィードバックとリクエストを頂けることを楽しみにしております。
@@ -150,8 +168,14 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 今回は、ABBYY Mobileの中から最新世代のモバイルスキャナーであるFineScannerAI 8をご紹介します。FineScannerはドキュメントをスキャンして保存するだけでなく、個人のスマートフォンアーキビスト（記録、公文書保管人）にもなります。 また、今Updateより、FineScannerは、すべての写真を7つの異なるドキュメントタイプに自動的に並べ替え、検索機能を使用して特定の写真を検索し、AR（拡張現実）を使用してドキュメントのサイズを正確に測定できるようになりました。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## 新世代のスマートギャラリー
 
 [第一世代のAI](https://tools.techidaily.com/abbyy/products/)ギャラリーはスマートフォンの写真アーカイブを自動的にスキャンして、テキスト付きのドキュメントを探すことを可能としました。つまり[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)は、猫や夕焼けの写真を含むイメージの中から、最も重要なドキュメントをすばやく選び出し、気を散らすことなく作業に集中できるようにしました。ただし、これはほんの始まりに過ぎず、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)の最大のアップデートの時期が来ました。
@@ -206,6 +230,9 @@ Connect with us
 
 デバイスプラットフォームに関係なく、iOSでもAndroidでも、使用可能です。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## iOSデバイスでAR（拡張現実）を使用してドキュメントサイズを測定する
 
 Appleユーザーには少し驚きがありました。 私たちの調査によると、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)ユーザーの半数以上が作成したドキュメントを電子メールまたはメッセンジャーアプリに送信します。これは、ドキュメントをPCに保存するか、印刷することによって起こり得ます。 以前の[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)バージョンでは、アプリから直接ドキュメントを印刷すると、画像がページ全体に拡大されてしまいましたが、これは不十分でした。
@@ -231,6 +258,9 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア

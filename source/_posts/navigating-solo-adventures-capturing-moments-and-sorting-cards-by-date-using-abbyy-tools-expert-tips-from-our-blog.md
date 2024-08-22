@@ -1,7 +1,7 @@
 ---
 title: "Navigating Solo Adventures: Capturing Moments and Sorting Cards by Date Using ABBYY Tools | Expert Tips From Our Blog"
-date: 2024-08-21 14:30:57
-updated: 2024-08-22 11:43:43
+date: 2024-08-21T15:20:50.204Z
+updated: 2024-08-22T15:20:50.204Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -132,6 +132,9 @@ Do you want to have a nourishing breakfast and feast your eyes on your own pictu
 
 ![gadget for selfies to make toasts look like you](https://static1.abbyy.com/abbyycommedia/26378/selfie-toaster.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Searching For Business Cards By Date**
 
 Do you remember the date of a conference but the name of a person that you’ve met totally slips your memory? Yes, we’ve all been there. Try looking for their business card by its recognition date:
@@ -143,14 +146,27 @@ Do you remember the date of a conference but the name of a person that you’ve 
 
 ![Abbyy BCR search by date](https://static1.abbyy.com/abbyycommedia/26379/image-from-ios-576x1024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the Week: Roofbot**
 
 ![Roofbot app logic puzzle](https://static1.abbyy.com/abbyycommedia/26380/screen-0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Roofbot is a conundrum game. Its main character is a cute robot who moves across building roofs and collects slots for a puzzle. This is a colorful game with pleasant background music, beautiful graphics, and a moving plot.
 
 ![roofbot that is trying to save planet](https://static1.abbyy.com/abbyycommedia/26381/643x0w.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 It features 120 levels and 25 tips that help you find the correct route. Roofbot is an exciting conundrum with a high rating that comes in reasonable price—only $2.99.
 
 ![roofbot app for two platforms android and ios](https://static1.abbyy.com/abbyycommedia/26382/roofbot-android-ios.jpg)
@@ -197,6 +213,9 @@ P.S. The previous issue is [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

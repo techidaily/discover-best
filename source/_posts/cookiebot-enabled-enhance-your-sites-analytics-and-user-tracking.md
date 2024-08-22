@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics and User Tracking"
-date: 2024-08-20 17:34:20
-updated: 2024-08-22 12:38:13
+date: 2024-08-21T15:20:49.944Z
+updated: 2024-08-22T15:20:49.944Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b704b313fd2f69558ac117bb.png
@@ -62,6 +62,9 @@ What BI cannot tell you, at least without a huge amount of custom development an
 
 For instance, can you determine if instances where certain salespersons received the highest number of orders coincided with efficient customer interactions where inquiries were promptly addressed; and conversely, can you determine if low order rates correlated to slow response times or potentially overlooked customer inquiries, ignoring the attempt completely? This is where BI falls short as it’s unable to establish and reveal those connections.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Key differences between process intelligence and business intelligence
 
 ### Focus
@@ -72,14 +75,23 @@ For instance, can you determine if instances where certain salespersons received
 
 **Process intelligence** uses event logs, audit tables, user interactions, and desktop activities as primary data sources. **Business intelligence** uses data from various sources related to a specific step/portion of a business process in order to analyze and visualize patterns, trends, and anomalies.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Outcomes
 
 **Process intelligence** provides insights that help organizations optimize their business processes, offering greater understanding of the global context of specific steps and variations between process instances. **Business intelligence** provides insights that help organizations make informed, data-driven decisions.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### Tools
 
 **Process intelligence** tools include process mining, task mining, analytics, monitoring, prediction, and simulation capabilities. **Business intelligence** tools typically include dashboards, reports, data analysis, and other visualization capabilities.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Key similarities between process intelligence and business intelligence
 
 Process intelligence and business intelligence do have similarities: both use organizational data to visually represent insights that support business management, analyzation, and decision-making processes. The same data warehouses may be leveraged in both process intelligence and BI tools, however the insights provided will vary depending on each platform's capabilities and limitations. This knowledge is fundamental for first-year business school students and professionals alike, as it forms the foundation for [making informed decisions and optimizing business operations](https://tools.techidaily.com/abbyy/products/) in a data-driven world.
@@ -98,6 +110,9 @@ It is important for those new to process intelligence and process mining to unde
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -108,6 +123,9 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

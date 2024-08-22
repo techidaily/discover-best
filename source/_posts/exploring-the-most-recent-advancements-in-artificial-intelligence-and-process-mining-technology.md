@@ -1,7 +1,7 @@
 ---
 title: Exploring the Most Recent Advancements in Artificial Intelligence & Process Mining Technology
-date: 2024-08-21 20:23:33
-updated: 2024-08-22 10:10:35
+date: 2024-08-21T15:20:50.155Z
+updated: 2024-08-22T15:20:50.155Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c542de5a35365804c9b914df05.jpg
@@ -25,3 +25,7 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->

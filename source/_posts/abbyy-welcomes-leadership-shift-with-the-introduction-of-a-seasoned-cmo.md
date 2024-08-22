@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Leadership Shift with the Introduction of a Seasoned CMO
-date: 2024-08-19 15:15:18
-updated: 2024-08-22 12:20:12
+date: 2024-08-21T15:20:49.884Z
+updated: 2024-08-22T15:20:49.884Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d4d65dffa6d108b05861c08e391929dff0db7f6ebc3e8d7f9915a07380165e20.jpg
@@ -62,3 +62,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

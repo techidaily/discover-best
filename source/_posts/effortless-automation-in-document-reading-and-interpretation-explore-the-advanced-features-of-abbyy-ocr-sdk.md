@@ -1,7 +1,7 @@
 ---
 title: "Effortless Automation in Document Reading & Interpretation: Explore the Advanced Features of ABBYY OCR SDK"
-date: 2024-08-20 16:30:40
-updated: 2024-08-22 10:31:41
+date: 2024-08-21T15:20:47.983Z
+updated: 2024-08-22T15:20:47.983Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb100b93a3444f92f9f5d3614.jpg
@@ -30,10 +30,17 @@ ABBYY FineReader Engine
 認識後の文書を再利用する場合や、文書の正確な再構築が必要な場合には、ここで得られた分析結果を利用して文書構造やレイアウトを再現します。 画像や図表はすべて元の形のままで維持され、画像やロゴの中に含まれるテキストは認識されません
 
   
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### フィールドレベル認識用にブロックをマニュアル指定
 
 テキスト認識範囲をマニュアルで指定するモードです。 この場合、認識すべきフィールドを直接定義するので、自動文書分析は不要となります。 指定したフィールドの座標とプロパティについての情報が、これに続く認識工程に引き渡され、指定された部分でのみOCRが実行されます。
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### 専門家とお話ししてみませんか？ 
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

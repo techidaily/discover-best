@@ -1,7 +1,7 @@
 ---
 title: "Accelerating Mobile Performance: Smartphone Enhancements & AR Contact Solutions | Insights From the ABBYY Perspective"
-date: 2024-08-20 18:37:45
-updated: 2024-08-22 12:39:12
+date: 2024-08-21T15:20:49.094Z
+updated: 2024-08-22T15:20:49.094Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
@@ -55,6 +55,9 @@ Constant **synchronization with services, background app refresh** — all of th
 
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
 
 Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of creating a virtual business card right in front of you? Well, not a real one of course, we are talking augmented reality here. And by the way, there are not that many apps that employ augmented reality capabilities. Are you excited to try this out? Here’s a list of steps:
@@ -66,12 +69,18 @@ Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of cre
 
 Note that this feature is only available in iOS 11 for iPhone SE, 6s, and newer.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the Week: Loop**
 
 Do you promise yourself to start a new life on Monday but never actually do? Try [Loop](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en) — an app that helps to develop and maintain habits. Detailed diagrams and statistics show what habits have already been consolidated and what must still be worked on.
 
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
 
 The app is available on [Android](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en).
@@ -82,6 +91,9 @@ P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/p
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

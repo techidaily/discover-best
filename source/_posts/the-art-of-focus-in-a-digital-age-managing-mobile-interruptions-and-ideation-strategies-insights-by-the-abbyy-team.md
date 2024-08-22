@@ -1,7 +1,7 @@
 ---
 title: "The Art of Focus in a Digital Age: Managing Mobile Interruptions & Ideation Strategies - Insights by the ABBYY Team"
-date: 2024-08-19 10:35:31
-updated: 2024-08-22 10:53:34
+date: 2024-08-21T15:20:48.591Z
+updated: 2024-08-22T15:20:48.591Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad664fe779b0bcf99c2c1168c7.jpg
@@ -54,6 +54,9 @@ Additionally, you can let through any caller who dials your number twice within 
 
 Another useful new feature of iOS 11 you may find really helpful is the **Do Not Disturb** **While Driving** mode. The phone will automatically enable the **Do Not Disturb** option if it detects that you are moving at high speed or have connected to your car’s Bluetooth network. When someone sends you an SMS (sadly, messengers are not supported), they will get a brief autoreply, if you care to supply one, like “Cant take my eyes off the road call you back later”. Ain’t that cool?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **Android Tip: How to Use the “Do Not Disturb” Feature**
 
 In Android, the **Do Not Disturb** feature is more flexible than in iOS and lets you to:
@@ -71,6 +74,9 @@ At the bottom of the screen, turn on **Do not disturb**.
 
 ![android sound do not disturb feature](https://static1.abbyy.com/abbyycommedia/26027/48666df7-823d-4fb4-9cc7-e2aaa7b0feb5-e1510059030120.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 The feature uses rules created by the user which tell the phone when it should go into **Do not disturb** mode. You can also specify several levels of quiet, from complete silence to priority calls and/or alarm sounds.
 
 Android comes with three ready-made rules: **Weekends**, **Event** and **Weeknight**. All you need to do is make the necessary adjustments and turn any of them on. For example, you can set up the phone to allow only calls from your family at weekends. Or you can make the sound of the alarm clock the only noise coming from your phone from 11:00pm to 07:00am on weekdays.
@@ -81,6 +87,9 @@ Android comes with three ready-made rules: **Weekends**, **Event** and **Weeknig
 
 Of course, there may be non-recurring time periods when you shouldn’t be disturbed, such as during important meetings or concerts. These can be added individually by tapping **Event**. You can also add events directly from Google Calendar, which is really handy.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Add Tags in FineScanner**
 
 Tags are a very useful invention. Using tag search, you can find that old contract that you signed quite some time ago, or separate your work correspondence from your personal documents. Here’s how you add tags in [FineScanner](http://qrs.ly/3f56xfu) to make working with documents easier and become more productive.
@@ -89,9 +98,15 @@ Tags are a very useful invention. Using tag search, you can find that old contra
 2. Tap **Properties** and start editing the document.![abbyy add tags in finescanner](https://static1.abbyy.com/abbyycommedia/26030/untitled-e1510059645865.png)
 3. In the **Tags** field, select the necessary tags from the list (e.g. **Work** or **Contract**) or add your own.![abbyy choose tags finescanner document ocr](https://static1.abbyy.com/abbyycommedia/26031/img_0083-e1510059671839.png)![abbyy add create new tag finescanner](https://static1.abbyy.com/abbyycommedia/26032/img_0084-e1510059696164.png)
 4. Click **Done** and go back to the ribbon. Now you will be able to find this document by specifying its tag in the search field.
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can tag all of your documents so that you don’t have to scroll through dozens of screens looking for some elusive contract. By the way, the iOS native Spotlight search engine also support tags.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **App of the Week: Keep Track of Your Ideas With Idealist**
 
 Got lots of ideas but not enough time to put them all into practice? Try [Idealist](https://itunes.apple.com/us/app/idealist-turn-your-idea-into/id975937527?mt=8), a new app designed to help you remember your best ideas and implement them. It will ask you some pertinent questions to help you decide what it is that you really want and how you can achieve it.
@@ -108,6 +123,9 @@ _Shared by Eugene Zudin, partner manager_
 
 **![advice colleague abbyy spend money wisely](https://static1.abbyy.com/abbyycommedia/26034/fjimnrfsihq-e1506953089696.jpg)**
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Almost half a century ago, the American psychologist Julian Jaynes came up with a wild yet compelling theory which he later developed in his 1976 book titled _The Origin of Consciousness in the Breakdown of the Bicameral Mind_, of which Richard Dawkins, the well-known evolutionary biologist, had this to say: “It is one of those books that is either complete rubbish or a work of consummate genius, nothing in between!”
 
 Put briefly, the theory states that up to a certain point in history we humans had no consciousness as we now understand it. Instead, our mind was _bicameral_, with one part taking decisions and giving orders while the other part listened and obeyed. The two parts ostensibly communicated using internal speech, akin to the inner voice we use when reasoning with ourselves in silent soliloquy. According to Jaynes, today we are all aware that these thoughts originate in our minds, whereas as little as 3000 years ago people thought that these were voices coming from on high—either from gods or, in later ages, from pharaohs or kings—which had to be believed and obeyed without reserve.

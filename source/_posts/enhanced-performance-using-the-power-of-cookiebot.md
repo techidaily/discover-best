@@ -1,7 +1,7 @@
 ---
 title: Enhanced Performance Using the Power of Cookiebot
-date: 2024-08-21 11:37:25
-updated: 2024-08-22 10:10:45
+date: 2024-08-21T15:20:49.241Z
+updated: 2024-08-22T15:20:49.241Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f94bf7c2b99f85ff1fa63d2bea22e03cd2a105f9c0efe0117a4ed53ffe45b35.jpg
@@ -104,6 +104,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

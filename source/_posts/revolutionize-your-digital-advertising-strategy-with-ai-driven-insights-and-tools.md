@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Digital Advertising Strategy with AI-Driven Insights and Tools
-date: 2024-08-20 13:17:10
-updated: 2024-08-22 12:46:56
+date: 2024-08-21T15:20:48.570Z
+updated: 2024-08-22T15:20:48.570Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/68fcf33334e321a1b8b2e73f81615f671f7efb0fc239157d241009df908a14c3.jpg
@@ -27,22 +27,38 @@ Director of Product Marketing, **ABBYY**
 
 ![55 Yannawinter 198X198](https://static4.abbyy.com/abbyycommedia/30152/55-yannawinter-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Yanna Winter
 
 Chief Information Officer & Head of IT, **Generali**
 
 ![56 Arvindermudhar 198X198](https://static4.abbyy.com/abbyycommedia/30153/56-arvindermudhar-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### Arvinder Mudhar
 
 Chief Information and Digital Officer, **Unum UK**
 
 ![57 Jeremyburgess 198X198](https://static3.abbyy.com/abbyycommedia/30156/57-jeremyburgess-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Jeremy Burgess
 
 CEO, **The Insurance Network**
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Mapping and innovating processes to drive better, customer focused decisions
 
 Effectively aligning people, process and technologies is the key to delivering an exceptional customer experience that drives retention, efficiencies and profitability.
@@ -62,6 +78,9 @@ Topics covered include:
 * Overcoming the data challenges to achieve a single view of the customer across the organisation
 * Leveraging technology to automate traditional manual processes in onboarding, policy underwriting, claims, adjudication and compliance
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ### Watch now
 
 ### Get in touch with us
@@ -69,6 +88,9 @@ Topics covered include:
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![18 Transforming Operations For The Digital Customer](https://static3.abbyy.com/abbyycommedia/30150/18-transforming-operations-for-the-digital-customer.jpg)](https://www.youtube.com/watch?v=K6duJ%5F44ViY) 

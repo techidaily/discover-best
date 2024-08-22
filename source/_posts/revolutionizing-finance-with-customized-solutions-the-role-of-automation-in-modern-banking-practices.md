@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Finance with Customized Solutions: The Role of Automation in Modern Banking Practices"
-date: 2024-08-20 23:39:54
-updated: 2024-08-22 10:31:27
+date: 2024-08-21T15:20:49.374Z
+updated: 2024-08-22T15:20:49.374Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9c3873bebb938a5f753924c98e7ee35151095e5c892d2b6f8749d10330823cf.jpg
@@ -25,12 +25,18 @@ Check out this podcast from ABBYY and BAI where we cover:
 * How digital intelligence enables financial institutions to innovate to exceed evolving customer needs.
 * The benefits of automation. Identify bottlenecks in your processes to make better, more informed decisions.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [BAI Banking Strategies](https://soundcloud.com/user-454147362-36519742 "BAI Banking Strategies") · [23.07 - Personalized banking is all about the customer journey](https://soundcloud.com/user-454147362-36519742/personalized-banking-is-all-about-the-customer-journey "23.07 - Personalized banking is all about the customer journey")
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

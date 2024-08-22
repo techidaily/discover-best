@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY Solutions: Revolutionizing Legal Document Management at Premier UK Law Practice"
-date: 2024-08-19 10:18:50
-updated: 2024-08-22 10:46:13
+date: 2024-08-21T15:20:48.179Z
+updated: 2024-08-22T15:20:48.179Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b46dad75221e4740026b09a7187d9a5f274b77721a6e7c2a0a28f40e4058b1a9.jpg
@@ -98,6 +98,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

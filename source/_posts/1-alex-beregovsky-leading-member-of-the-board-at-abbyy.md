@@ -1,7 +1,7 @@
 ---
 title: "1. Alex Beregovsky: Leading Member of the Board at ABBYY"
-date: 2024-08-19 21:37:46
-updated: 2024-08-22 11:14:21
+date: 2024-08-21T15:20:48.182Z
+updated: 2024-08-22T15:20:48.182Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92b37c07bddbdc531cfaf008b46137ba5e744b7d98ae5b26056ce84b934a6ade.jpg
@@ -37,3 +37,7 @@ Prior thereto, Mr. Beregovsky was an investment professional at Viking Global In
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->

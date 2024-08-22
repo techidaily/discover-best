@@ -1,7 +1,7 @@
 ---
 title: ABBYY Crowned as Top Contender by Everest Group for Intelligent Document Solutions with Peak Matrix® Evaluation - 2022 Insights
-date: 2024-08-21 18:25:18
-updated: 2024-08-22 10:44:34
+date: 2024-08-21T15:20:47.780Z
+updated: 2024-08-22T15:20:47.780Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed134b8bf4a5fe9e955fed55f.jpg
@@ -48,10 +48,17 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY editorial contacts
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 #### Catherine Johnson
 
 _Director of Analyst Relations & Global Media Relations_

@@ -1,7 +1,7 @@
 ---
 title: "AI-Driven Automation: Exploring Intuitive Document Handling Scenarios Within the Medical Field"
-date: 2024-08-20 11:23:53
-updated: 2024-08-22 12:13:14
+date: 2024-08-21T15:20:47.831Z
+updated: 2024-08-22T15:20:47.831Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ce80644caee7b986767dc148a3626afb6dedcf8d303ed5814c688bdf2e6498bb.jpg
@@ -77,3 +77,7 @@ Automate the extraction of invoice data, verify the accuracy of charges, and mat
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->

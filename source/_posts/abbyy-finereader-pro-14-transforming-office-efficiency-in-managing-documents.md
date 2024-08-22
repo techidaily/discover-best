@@ -1,7 +1,7 @@
 ---
 title: ABBYY FineReader Pro 14 - Transforming Office Efficiency in Managing Documents
-date: 2024-08-21 10:12:19
-updated: 2024-08-22 12:51:55
+date: 2024-08-21T15:20:48.669Z
+updated: 2024-08-22T15:20:48.669Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10f872fb8ad2749e476bdef7761907e1144c3760c0bcadfec382f35c405d63aa.jpg
@@ -31,10 +31,16 @@ ABBYY developed FineReader 14 in response to the needs of modern business profes
 * **Deep OCR integration into PDF tools:** FineReader 14 is the product of choice for those who work with scans and paper-based PDFs on a daily basis due to its ability to automatically apply OCR to PDFs when required.
 * **Over 190 OCR languages:** New version supports text recognition in more than 190 languages, including some difficult-to-digitize languages such as Korean, Chinese, Japanese and Arabic. It also comes with support for simple math formulas and English phonetic transcriptions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Availability
 
 ABBYY FineReader 14 is available immediately in three editions: Standard, Corporate and Enterprise, worldwide. It can be ordered through online stores and many retail outlets . For detailed product information and available versions, visit [www.abbyy.com/finereader](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY is a leading global provider of technologies and solutions that help businesses to action information. The company sets the standard in content capture and innovative language-based technologies that integrate across the information lifecycle. ABBYY solutions are relied on to optimize business processes, mitigate risk, accelerate decision making and drive revenue. ABBYY technologies are used and licensed by some of the largest international enterprises and government organizations, as well as SMBs and individuals. The company maintains offices in Australia, Canada, Cyprus, France, Germany, Japan, Spain, Taiwan, UAE, the UK, Ukraine, and the United States. For more information, visit [/company/about-us/](https://tools.techidaily.com/abbyy/products/).

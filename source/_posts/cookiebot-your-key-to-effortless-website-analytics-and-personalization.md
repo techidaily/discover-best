@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Your Key to Effortless Website Analytics and Personalization"
-date: 2024-08-20 20:28:38
-updated: 2024-08-22 12:48:28
+date: 2024-08-21T15:20:48.401Z
+updated: 2024-08-22T15:20:48.401Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065dd6fb56cbf786d1e09002e10.jpg
@@ -19,18 +19,27 @@ White paper
 
 A key requirement for effective process mining is the ability to access event logs from various systems of record, as they actually occur. This event log data provides the fuel for process insights, predictions, and decision-making. But first, it must be transformed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 This white paper explores the different approaches to data transformation using ETL (Extract, Transform, and Load) and ELT (Extract, Load, and Transform), and their resulting value in supporting process mining of event log data in cased-based processes with a high degree of variability such as healthcare delivery, claims processing, and customer service.
 
 Get to the bottom of why the shift from ETL to ETL matters for the next generation of process discovery, mining, and analysis.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read white paper](https://digital.abbyy.com/hubfs/content/whitepaper-from-etl-to-elt-process-mining-en.pdf "Read white paper") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

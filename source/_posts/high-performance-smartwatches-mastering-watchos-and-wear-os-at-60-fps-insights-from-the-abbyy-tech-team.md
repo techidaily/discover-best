@@ -1,7 +1,7 @@
 ---
 title: "High-Performance Smartwatches: Mastering WatchOS & Wear OS at 60 FPS - Insights From the ABBYY Tech Team"
-date: 2024-08-20 16:41:16
-updated: 2024-08-22 12:25:23
+date: 2024-08-21T15:20:48.911Z
+updated: 2024-08-22T15:20:48.911Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0039be476e652be6e9e02b60752db5e1733ea22d9d841af5f5ee6bd2b62676ef.jpg
@@ -86,6 +86,9 @@ To open notifications, simply swipe upwards on the main screen. The new Smart Re
 
 ![samsung smart watch](https://static1.abbyy.com/abbyycommedia/26561/notifications-mk.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 **Quick Settings**
 
 Swiping down will open the updated Quick Settings menu, where you can manage your wireless connections, enable the “Do not disturb” and battery saving modes, or activate the Google Pay and Find My Phone features.
@@ -98,6 +101,9 @@ The Google Fit activity tracker has an additional screen with smart tips and cir
 
 ![sport activities on gear os](https://static1.abbyy.com/abbyycommedia/26563/fit-tile-workout.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 **Improved Google Assistant** 
 
 The voice assistant has become smarter and more functional. Now you need to swipe left to right to call up the assistant. In additional to the functionality available in the previous versions, you can now check your flight status, hotel reservations, and the weather at your destination. The assistant can also display the restaurants in the vicinity of your hotel and will even keep a diary for you!
@@ -116,12 +122,18 @@ Now camera in Business Card Reader scrolls 60 pages of a notepad frames per seco
 
 Update or download [Business Card Reader](http://qrs.ly/ip56xfe) and see how crisp and sharp your texts now look.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **App of the Week: Blinkist**
 
 There’s often just not enough time for reading, especially if the book is long and requires complete and sustained concentration. In the hustle and bustle of modern city life, many of us prefer digested versions of large works, provided, of course, that no essential information is lost along the way. Meet [Blinkist](https://www.blinkist.com/): Read More Nonfiction, an app that includes over 2,500 of the best titles from all over the world, each requiring no more than 15 minutes to read. Additionally, all titles are available both in text and audio, and you can easily switch between the two versions.
 
 ![Blinkist app](https://static1.abbyy.com/abbyycommedia/31975/pic-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Each book is carefully abbreviated by [Blinkist](https://www.blinkist.com/) editors. Complex ideas are explained in simple terms, so that you can listen while working out, having lunch, or driving to or from work.
 
 ![Blinkist app](https://static1.abbyy.com/abbyycommedia/31976/pic-2.png)
@@ -132,6 +144,10 @@ The app will suggest a reading list based on your past choices. You can create y
 
 Available on [iOS](https://itunes.apple.com/us/app/blinkist-always-learning/id568839295) and [Android](https://play.google.com/store/apps/details?id=com.blinkslabs.blinkist.android&hl=en).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Ksenia Zhilkina, Junior Project Manager_
@@ -154,6 +170,9 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -229,6 +248,9 @@ What you need for the feature to work:
 
 ![Walkie-talkie apple watch](https://static1.abbyy.com/abbyycommedia/26556/2-1-948x1024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 **It’s fun!**
 
 The previous version of watchOS [was all about fitness](https://www.apple.com/au/newsroom/2017/06/watchos-4-brings-more-intelligence-and-fitness-features-to-apple-watch/), which Apple seemed to take very seriously. Now Apple has decided to make your physical activity more competitive and fun, allowing you to compare your calorie-burning stats with those of your friends and colleagues. Sounds simple, but it’s a very powerful motivator.
@@ -251,6 +273,9 @@ You no longer need to say “Hey, Siri!” to invoke the assistant, which many p
 
 ![shortcuts on apple watch](https://static1.abbyy.com/abbyycommedia/26559/5-1-948x1024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 **Grouped** **notifications**
 
 Like iOS 12, your watch now groups notifications based on their originating apps, so that you don’t have to scroll through long lists of alerts. Additionally, you can easily delete all notifications from a particular app with one tap.
@@ -275,6 +300,9 @@ To open notifications, simply swipe upwards on the main screen. The new Smart Re
 
 ![samsung smart watch](https://static1.abbyy.com/abbyycommedia/26561/notifications-mk.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Quick Settings**
 
 Swiping down will open the updated Quick Settings menu, where you can manage your wireless connections, enable the “Do not disturb” and battery saving modes, or activate the Google Pay and Find My Phone features.
@@ -287,14 +315,24 @@ The Google Fit activity tracker has an additional screen with smart tips and cir
 
 ![sport activities on gear os](https://static1.abbyy.com/abbyycommedia/26563/fit-tile-workout.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 **Improved Google Assistant** 
 
 The voice assistant has become smarter and more functional. Now you need to swipe left to right to call up the assistant. In additional to the functionality available in the previous versions, you can now check your flight status, hotel reservations, and the weather at your destination. The assistant can also display the restaurants in the vicinity of your hotel and will even keep a diary for you!
 
 ![google assistant](https://static1.abbyy.com/abbyycommedia/26564/jovi-tic.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 In our opinion, the new update has definitely been worth the wait. The OS has become much easier to use, not least because of the new gestures it supports.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: 60 FPS in Business Card Reader for iOS**
 
 We are pleased to inform you that [Business Card Reader](http://qrs.ly/ip56xfe) now uses the full potential of your iPhone camera. The app now supports videos shot at 60 frames per second!
@@ -315,12 +353,26 @@ Each book is carefully abbreviated by [Blinkist](https://www.blinkist.com/) edit
 
 ![Blinkist app](https://static1.abbyy.com/abbyycommedia/31976/pic-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 The app will suggest a reading list based on your past choices. You can create your own playlists and listen to or read books even when you are offline.
 
 ![Blinkist app](https://static1.abbyy.com/abbyycommedia/31973/pic-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/us/app/blinkist-always-learning/id568839295) and [Android](https://play.google.com/store/apps/details?id=com.blinkslabs.blinkist.android&hl=en).
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Ksenia Zhilkina, Junior Project Manager_
@@ -343,6 +395,9 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share

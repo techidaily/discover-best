@@ -1,7 +1,7 @@
 ---
 title: "Anubhav Saxena: Visionary Director at the Helm of ABBYY's Executive Structure"
-date: 2024-08-19 20:43:15
-updated: 2024-08-22 10:20:36
+date: 2024-08-21T15:20:48.682Z
+updated: 2024-08-22T15:20:48.682Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/192a8b490dda7b2810c72f377a9e089461747eddc1922b17a723c29b678176ef.jpg
@@ -41,3 +41,7 @@ Anubhav is a TiE Charter Member, Silicon Valley, an invitation-only program for 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->

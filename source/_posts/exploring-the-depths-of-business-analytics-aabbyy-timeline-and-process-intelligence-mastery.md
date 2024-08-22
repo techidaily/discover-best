@@ -1,7 +1,7 @@
 ---
 title: Exploring the Depths of Business Analytics - AABBYY TimeLine and Process Intelligence Mastery
-date: 2024-08-21 23:24:21
-updated: 2024-08-22 10:43:34
+date: 2024-08-21T15:20:48.495Z
+updated: 2024-08-22T15:20:48.495Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c11cab04cb22d5f5327eef01b.jpg
@@ -33,3 +33,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->

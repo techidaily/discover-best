@@ -1,7 +1,7 @@
 ---
 title: Pioneering Leader Rusty James Chosen by ABBYY to Spearhead Growth in the Americas Region
-date: 2024-08-20 20:52:19
-updated: 2024-08-22 11:23:48
+date: 2024-08-21T15:20:48.144Z
+updated: 2024-08-22T15:20:48.144Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50da58587d7473ccea973193c5c4bacc32476fa35b560a9912e15b1167ea0299.jpeg
@@ -53,3 +53,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

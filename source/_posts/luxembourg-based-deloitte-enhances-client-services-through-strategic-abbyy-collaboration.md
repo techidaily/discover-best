@@ -1,7 +1,7 @@
 ---
 title: Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration
-date: 2024-08-19 20:51:17
-updated: 2024-08-22 10:37:48
+date: 2024-08-21T15:20:48.925Z
+updated: 2024-08-22T15:20:48.925Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49542887406f9b6531aa186a8.jpg
@@ -41,6 +41,10 @@ ABBYY was recognized by Everest Group, a leading consulting and research firm, a
 
 With more than 130 partners and 2,300 employees, Deloitte Luxembourg is one of the Grand Duchy's largest, strongest and oldest professional services firms. For more than 70 years, its talented teams have been serving clients in various industries delivering high added-value offerings to national and international clients in audit and assurance, consulting, financial advisory, risk advisory, tax, and related services. Deloitte Luxembourg is part of the global Deloitte network that is represented in more than 150 countries and territories and serves four out of five Fortune Global 500® companies. Learn how Deloitte’s people make an impact that matters at [www.deloitte.com/lu](http://www.deloitte.com/lu).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -51,10 +55,16 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_

@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Strategic Choices Through Forecasting & Guidance Techniques: An Insightful Analysis of TIAA's Experience"
-date: 2024-08-19 21:41:40
-updated: 2024-08-22 10:10:20
+date: 2024-08-21T15:20:48.019Z
+updated: 2024-08-22T15:20:48.019Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b366750108562524d82d4ae59a489c50fa84a81f8bcbe092ec793162bb9610d.jpg
@@ -21,18 +21,32 @@ March 16, 2023 | English
 
 ![Bruce Orcutt 198X198](https://static1.abbyy.com/abbyycommedia/36289/bruce-orcutt-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Bruce Orcutt
 
 Senior Vice President of Product Marketing, **ABBYY**
 
 ![Justin Reinking 198X198](https://static1.abbyy.com/abbyycommedia/36927/logo-tiaa.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Justin Reinking 198X198](https://static4.abbyy.com/abbyycommedia/36894/justin-reinking-198x198.png)
 
 ### Justin Reinking
 
 Sr. Director of Reporting and Analytics, **TIAA**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Improve the future of work with new process mining capabilities for strategic decision-making
 
 Today’s business leaders need to be able to identify and quickly take action on ways they can strategically and thoughtfully reduce unnecessary costs, yet enable growth opportunities.
@@ -50,17 +64,26 @@ Watch now and hear real-world lessons learned from a process improvement visiona
 
 ### Watch now
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![Improve Decision Making 643](https://static2.abbyy.com/abbyycommedia/36893/improve-decision-making-643.jpg)](https://www.youtube.com/watch?v=ogn1GDRrEMs) 
 
 [![ABBYY Named a 2022 Leader in Intelligent Document Processing and Process Discovery & Mining](https://static4.abbyy.com/abbyycommedia/36500/isg-report-2022.jpg) ABBYY Named a 2022 Leader in IDP and Process Discovery & Mining Download report](https://www.abbyy.com/resources/report/intelligent-document-processing-and-mining-isg-provider-lens/ "ABBYY Named a 2022 Leader in IDP and Process Discovery & Mining")[![ABBYY Whitepaper: Combining Process & Task Mining for Greater Insight](https://static3.abbyy.com/abbyycommedia/35906/14946-whitepaper-nelsonhall-2022-en-360x232.jpg) Combining Process & Task Mining for Greater Insight Download whitepaper](https://www.abbyy.com/resources/whitepaper/combining-process-task-mining-for-greater-insight/ "Combining Process & Task Mining for Greater Insight")[![ABBYY Timeline 6.0 Accelerates Operational Excellence by Helping Organizations Find their ‘Primary Path’](https://static5.abbyy.com/abbyycommedia/36784/timeline-webinars.jpg) ABBYY Timeline 6.0 Accelerates Operational Excellence by Helping Organizations Find their ‘Primary Path’ Read blog](https://www.abbyy.com/blog/abbyy-timeline-release-6-accelerates-operational-excellence/ "ABBYY Timeline 6.0 Accelerates Operational Excellence by Helping Organizations Find their ‘Primary Path’") 
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)

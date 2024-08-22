@@ -1,7 +1,7 @@
 ---
 title: ABBYY Expands Influence in Digitization with Strategic TimelinePI Takeover
-date: 2024-08-21 23:51:27
-updated: 2024-08-22 12:38:19
+date: 2024-08-21T15:20:49.871Z
+updated: 2024-08-22T15:20:49.871Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/32b091bb5633d3a9c4c2a4da4b60ec3b4374fdb769db4d47d5b0ac420926fc16.jpg
@@ -74,3 +74,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->

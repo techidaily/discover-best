@@ -1,7 +1,7 @@
 ---
 title: Enhanced Through Innovative Cookiebot Solutions
-date: 2024-08-19 10:27:41
-updated: 2024-08-22 12:22:35
+date: 2024-08-21T15:20:50.146Z
+updated: 2024-08-22T15:20:50.146Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7104f2fdb3efe51471cdd88f375c828abb8a0fae8ecd95c240012aa4c932f917.jpg
@@ -19,6 +19,9 @@ The Emergency Department is a vital focus area for hospitals aiming to increase 
 
 ABBYY’s Process Intelligence platform applies Artificial Intelligence to the data from your healthcare systems to build a realistic digital model of your processes that includes variations and exceptions. It provides you with a clear picture of how your ED processes are executing on a day-to-day basis so you can target efforts to eliminate efficiencies in the areas they’ll be most effective.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 Download this Emergency Department solution brief to learn how you can gain the insights you need to…
@@ -28,12 +31,18 @@ Download this Emergency Department solution brief to learn how you can gain the 
 * Reduce door-to-doctor time
 * Increase patient satisfaction
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read solution brief](https://digital.abbyy.com/hubfs/content/solutionbrief-healthcare-emergency-department-en.pdf "Read solution brief") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

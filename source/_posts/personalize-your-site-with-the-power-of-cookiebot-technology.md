@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Site with the Power of Cookiebot Technology
-date: 2024-08-21 15:23:34
-updated: 2024-08-22 10:15:45
+date: 2024-08-21T15:20:49.368Z
+updated: 2024-08-22T15:20:49.368Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5cf7e45072025cfbbdb41e62586d386e0a0a7b2115c18b01f985181746d9f291.jpg
@@ -121,6 +121,9 @@ Engineering & Manufacturing | Oil & Gas | Consulting | Document Processing | Doc
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

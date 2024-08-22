@@ -1,7 +1,7 @@
 ---
 title: Driving Forward with Teamwork and Novel Approaches in the Insurance Industry
-date: 2024-08-20 20:54:23
-updated: 2024-08-22 12:14:51
+date: 2024-08-21T15:20:48.858Z
+updated: 2024-08-22T15:20:48.858Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9344fe92d8db0b4a31855d9f.JPG
@@ -50,12 +50,18 @@ IDC’s latest research about intelligent automation in insurance.
 
 [View the infographic](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understand your processes first
 
 One point that really stayed with me was that when projects are deemed a failure, it’s not because the technology didn’t work; it’s most often due to organizations choosing the wrong aspect of a process to automate, simply because they didn’t truly understand their processes in the first place. Or, they didn’t clearly define the business outcomes that they were aiming to achieve.
 
 [Improve your processes with real-time insight from your own systems.](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Collaboration + Experimentation = Innovation
 
 Internal collaboration and experimentation can take years to establish, particularly in large, established insurers with strong cultures and ways of working that have served them well.
@@ -68,6 +74,9 @@ But now, it’s clear that the overnight shift to remote work and virtual custom
 
 Insurers need to find new approaches to improving their processes. And it’s not another rip-and-replace project. Ultimately, using technology to advance intelligent process automation is most successful when an organization defines what success looks like before a project starts. And that’s because innovative technology projects all have the potential for business value–it just depends on what your business objectives are.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Set up an innovation lab
 
 Some companies have set up [innovation labs](https://www.cbinsights.com/research/insurance-innovation-labs/) where small groups can work on projects without the pressures and constraints of the day-to-day business environment, building new ways of working that can be scaled up and absorbed into the larger organization. This approach enables them to look at the different business areas across the enterprise and figure out what technologies will have the most business impact.
@@ -86,6 +95,9 @@ The most successful organizations will be the ones that find ways to embed innov
 
 Eileen Potter
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -94,14 +106,23 @@ Share
 
 ![](https://static3.abbyy.com/abbyycommedia/35948/14998-cover-1-innovation.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 [Insurance Innovation: How Forward-Thinking Insurers are Finding Success](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static4.abbyy.com/abbyycommedia/35501/insurance-cover-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [No Time to Lose: Solving Document Challenges in Insurance](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static4.abbyy.com/abbyycommedia/35325/professionals-5-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 [Failproof Your Success with Intelligent Process Automation](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates

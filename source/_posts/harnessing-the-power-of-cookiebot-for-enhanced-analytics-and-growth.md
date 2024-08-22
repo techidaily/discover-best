@@ -1,7 +1,7 @@
 ---
 title: Harnessing the Power of Cookiebot for Enhanced Analytics & Growth
-date: 2024-08-20 16:55:10
-updated: 2024-08-22 11:54:40
+date: 2024-08-21T15:20:50.166Z
+updated: 2024-08-22T15:20:50.166Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f7aaa7e93668c79f588e2bdc07bd0199fd9952e273ede775f53891cdecae42d.jpg
@@ -47,14 +47,26 @@ Enabling keyboard input is easy: call up your assistant using a long press of th
 
 ![google assistant](https://static1.abbyy.com/abbyycommedia/26891/google-assistent.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Google have also made an interesting feature available for Pixel 2 and 3 owners. On these devices, you can also activate the Assistant by lightly squeezing the phone in your hand (i.e. by pressing down on both sides simultaneously).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: the Recognize Again Command**
 
 In one of the recent FineScanner updates, we have added an offline text recognition mode. Using it does not require an internet connection, meaning that you will receive the results instantly. Note, however, that this mode can only be used with TXT files. Sometimes, you might not be satisfied with your offline mode results. If this is so, you can tap **Recognize again**. This will take you back to the mode selection screen, where you can try the more powerful online mode (which will also keep the formatting of the original text).
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26892/abbyy-finescanner.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **App of the Week: Vanido** 
 
 We would recommend Vanido to karaoke enthusiasts or people planning to take up singing as more than just a hobby.
@@ -65,10 +77,16 @@ _Try if you dare_.
 
 ![voice training on iphone](https://static1.abbyy.com/abbyycommedia/26893/prilozhenie-dlya-trenirovki-golosa.jpg) ![karaoke app ios](https://static1.abbyy.com/abbyycommedia/26894/kak-nauchitsya-pet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 That’s all from us for today. Until next time!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

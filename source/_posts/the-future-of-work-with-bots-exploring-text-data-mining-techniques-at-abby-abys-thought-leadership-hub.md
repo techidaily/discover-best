@@ -1,7 +1,7 @@
 ---
 title: "The Future of Work with Bots: Exploring Text Data Mining Techniques at ABBY ABY's Thought Leadership Hub"
-date: 2024-08-19 11:12:27
-updated: 2024-08-22 12:44:19
+date: 2024-08-21T15:20:50.234Z
+updated: 2024-08-22T15:20:50.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db3dbeacfdd5ea435b3f8eb406f01646288938a037fe9e28d65cbe9fbebcdbb0.png
@@ -103,3 +103,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->

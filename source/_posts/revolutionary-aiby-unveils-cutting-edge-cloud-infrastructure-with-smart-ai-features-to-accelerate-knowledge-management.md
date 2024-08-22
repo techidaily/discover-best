@@ -1,7 +1,7 @@
 ---
 title: Revolutionary AIBY Unveils Cutting-Edge Cloud Infrastructure with Smart AI Features to Accelerate Knowledge Management
-date: 2024-08-20 22:29:33
-updated: 2024-08-22 10:43:59
+date: 2024-08-21T15:20:48.151Z
+updated: 2024-08-22T15:20:48.151Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978f937cb6e50b9af175371190.jpg
@@ -65,3 +65,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->

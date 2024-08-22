@@ -1,7 +1,7 @@
 ---
 title: "Groundbreaking Collaboration: ABBYY + Blue Prism Introduce Advanced Automation Technologies"
-date: 2024-08-20 23:58:34
-updated: 2024-08-22 11:44:11
+date: 2024-08-21T15:20:48.529Z
+updated: 2024-08-22T15:20:48.529Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/62c8ecc88aff429d62093b18bad06f55833353ec78e34142ed3c3e52ff3fe5e7.png
@@ -64,3 +64,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->

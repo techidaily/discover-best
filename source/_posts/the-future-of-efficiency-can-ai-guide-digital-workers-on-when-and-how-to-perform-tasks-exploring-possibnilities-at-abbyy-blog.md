@@ -1,7 +1,7 @@
 ---
 title: "The Future of Efficiency: Can AI Guide Digital Workers on When and How to Perform Tasks? | Exploring Possibnilities at ABBYY Blog"
-date: 2024-08-21 21:11:45
-updated: 2024-08-22 12:21:18
+date: 2024-08-21T15:20:50.224Z
+updated: 2024-08-22T15:20:50.224Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814164fccb1a1f598c30e520f7.jpg
@@ -43,6 +43,9 @@ _You can almost hear the days ticking away…_
 
 That’s exactly what I want to illustrate today. By adding both Process Intelligence and Content Intelligence skills to the digital worker, we can have this hiccup in the process handled on autopilot.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Process aware
 
 Now let’s start by making our digital worker process aware. To do this, we are going to leverage the capabilities of Process Intelligence to trigger the digital worker and have them execute the task whenever needed in the process. Within our process, there are certain steps for this loan approval. One of them being that all the supporting documents are available and that the review process of these documents cannot take longer than 1 hour. We call this a protocol.
@@ -53,12 +56,18 @@ With alerts and active run time operations monitoring using Process Intelligence
 
 The mitigation steps here require the digital worker to be able to understand the document-based content that is presented by the customer and use that to further solve the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Content aware
 
 But how do we make our digital worker do that, you ask? With the easy-to-use Content Intelligence skills, you can enable your digital workers to be content aware.
 
 By adding this skill, the digital worker is able to efficiently process the required documents needed to automatically complete the required loan approval steps. Being able to process and extract business value from any kind of document, with the ease of dropping in a particular Content Intelligence Skill, brings us one step closer to process excellence.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Digital workers aren’t going to take over, but they will grow to help more in the workplace
 
 As we bring more and more skills to digital workers using ABBYY’s Digital Intelligence technologies, we’ll be able to automate more tedious tasks, which in turn provide better customer experiences. The importance of this is paramount, because as traditional services are becoming a commodity, having the better customer experience can make the difference. Let’s all be honest, even if you provide an exceptional service, if the journey to use that service isn’t great, customers will drop and your customer acquisition costs will rise.
@@ -71,6 +80,9 @@ Learn more about getting next-level intelligence for digital workers using ABBYY
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -79,6 +91,9 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

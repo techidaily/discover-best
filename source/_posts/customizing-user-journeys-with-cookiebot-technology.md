@@ -1,7 +1,7 @@
 ---
 title: Customizing User Journeys with Cookiebot Technology
-date: 2024-08-20 21:29:50
-updated: 2024-08-22 10:17:29
+date: 2024-08-21T15:20:47.954Z
+updated: 2024-08-22T15:20:47.954Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70fd1186bee34b5c05700af6e2.jpg
@@ -136,6 +136,9 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

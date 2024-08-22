@@ -1,7 +1,7 @@
 ---
 title: Enhanced Billing System via ABBYY Partnership Streamlines Financial Tasks in Major Community Housing Organizations
-date: 2024-08-21 22:42:17
-updated: 2024-08-22 11:58:38
+date: 2024-08-21T15:20:49.634Z
+updated: 2024-08-22T15:20:49.634Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0132287bf7d51b07521a43a3870f625dc6e6364d7e4121c0d057d3f42a0a988f.jpg
@@ -110,6 +110,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

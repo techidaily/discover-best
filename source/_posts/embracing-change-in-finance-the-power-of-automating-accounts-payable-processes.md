@@ -1,7 +1,7 @@
 ---
 title: "Embracing Change in Finance: The Power of Automating Accounts Payable Processes"
-date: 2024-08-21 10:50:26
-updated: 2024-08-22 10:21:18
+date: 2024-08-21T15:20:49.625Z
+updated: 2024-08-22T15:20:49.625Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5bbe71d28db5297dd251335f2aaa3c6aeec5c7c669607905f5ab705b440efbb.jpg
@@ -29,10 +29,17 @@ Traditionally, an AP improvement project takes root when the awareness of the pr
 
 The benefits of AP Automation are well documented by industry analysts and research firms. With automation, companies see more than four times increase in the number of invoices an employee can process per year, and spend 30% less time responding to supplier inquiries. With the right technology, invoice cycle time will decrease to 5 days or even shorter, which can foster strong supplier relationships and allow for early payment discounts. Paper-based processes can cost five to ten times more than automated processes. In fact, a recent study by prominent research firm reports that the average cost to process a single invoice is more than $13, compared to best-in-class performance of less than $3\. Accuracy is yet another big benefit. The human error factor is always in place as the result of manual entry of invoice information into accounting systems.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Keeping up with growth spurt
 
 Lately, we're seeing a strong trend, particularly with midsize organizations, that the growth of the company fuels the interest in invoice automation. With growth, there are more invoices to process and decision makers need a way to manage the increased volume. A growing transportation and logistics company that we work with in the northwest processes 150K invoices per year and recently took the leap to invest in invoice automation. The primary reason? Automation allows the company to manage the influx of invoices without having to hire additional full time employees.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Antiquated legacy solution
 
 The newest trend is toward replacing outdated solutions. Invoice automation software was first introduced nearly two decades ago, and many businesses—especially the larger enterprises—adopted the technology along the way. Today, the leaders of those same businesses are finding that those solutions can’t compare to the performance of newly-developed technology.
@@ -47,8 +54,14 @@ Whether you’re just coming to understand the undeniable benefits derived from 
 
 ![Daneen Storc ABBYY](https://static4.abbyy.com/abbyycommedia/25721/daneen-retouched-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Daneen Storc
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

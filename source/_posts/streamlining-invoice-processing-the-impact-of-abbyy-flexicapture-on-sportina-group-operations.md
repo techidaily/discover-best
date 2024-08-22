@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Invoice Processing: The Impact of ABBYY FlexiCapture on Sportina Group Operations"
-date: 2024-08-19 13:29:38
-updated: 2024-08-22 12:54:17
+date: 2024-08-21T15:20:49.829Z
+updated: 2024-08-22T15:20:49.829Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44d6dd331015bef170e8a84e58ebf4bd2f78d6bf84e5387ee2cc99a7ec3e5ce7.jpg
@@ -111,6 +111,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Ulf Persson, CEO of ABBYY Group, Issues Official COVID-19 Response Statement
-date: 2024-08-20 15:16:54
-updated: 2024-08-22 12:48:32
+date: 2024-08-21T15:20:49.398Z
+updated: 2024-08-22T15:20:49.398Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12335ea2d0dc0b871ccf2113a.jpg
@@ -48,3 +48,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Timeline 5 に新しいタスクマイニング機能を追加:より効果的なネットワーク構築とデータ分析の可能性"
-date: 2024-08-19 23:44:42
-updated: 2024-08-22 11:23:14
+date: 2024-08-21T15:20:49.466Z
+updated: 2024-08-22T15:20:49.466Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7dd341f7046ddf8ecb2ad394e.png
@@ -75,3 +75,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->

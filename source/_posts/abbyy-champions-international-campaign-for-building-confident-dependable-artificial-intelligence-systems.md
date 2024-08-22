@@ -1,7 +1,7 @@
 ---
 title: ABBYY Champions International Campaign for Building Confident, Dependable Artificial Intelligence Systems
-date: 2024-08-20 22:40:25
-updated: 2024-08-22 10:25:10
+date: 2024-08-21T15:20:49.068Z
+updated: 2024-08-22T15:20:49.068Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e3fbcfe204dfbd52573599aedc96b853d77272f3befed715bed50ff29c06e5a.jpg
@@ -73,3 +73,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

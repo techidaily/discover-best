@@ -1,7 +1,7 @@
 ---
 title: "Next-Gen Doc Management: Smart Solutions for Enhanced Patient Records and Health Data Processing"
-date: 2024-08-20 13:23:12
-updated: 2024-08-22 12:29:39
+date: 2024-08-21T15:20:48.560Z
+updated: 2024-08-22T15:20:48.560Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901d539098fb8807351d6a9dda.png
@@ -77,3 +77,7 @@ Automate the extraction of invoice data, verify the accuracy of charges, and mat
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

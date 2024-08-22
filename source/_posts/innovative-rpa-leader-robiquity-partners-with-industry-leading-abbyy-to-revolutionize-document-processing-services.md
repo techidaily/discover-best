@@ -1,7 +1,7 @@
 ---
 title: Innovative RPA Leader Robiquity Partners with Industry-Leading ABBYY to Revolutionize Document Processing Services
-date: 2024-08-21 22:12:23
-updated: 2024-08-22 11:37:42
+date: 2024-08-21T15:20:49.703Z
+updated: 2024-08-22T15:20:49.703Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1a198795a8e787f87495ff53728e7afa23ff18e9e6e9e1eedfcc3c91fa246e6a.jpg
@@ -82,3 +82,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->

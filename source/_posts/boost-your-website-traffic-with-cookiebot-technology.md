@@ -1,7 +1,7 @@
 ---
 title: Boost Your Website Traffic with Cookiebot Technology
-date: 2024-08-21 18:30:46
-updated: 2024-08-22 11:49:21
+date: 2024-08-21T15:20:50.278Z
+updated: 2024-08-22T15:20:50.278Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/425081092e1a679d02f1bd0f9b8040f12a7c3e9a90f0ca40e490e9a1586e5331.jpg
@@ -27,6 +27,9 @@ The University of Southampton Library supports a community of approximately 35,0
 
 ABBYY FineReader, a software product designed for ad-hoc scanning and digitisation, had been used by the Library for a number of years to digitise small numbers of pages, and occasionally full books, with the addition of text recognition or OCR (optical character recognition). The Library quickly realised however that in order to automate the OCR process with a high throughput and achieve their goal of digitising half a million pages per year, they would need a more robust product capable of automatically processing large volumes of documents. 
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Solution
 
 In order to find a solution to process printed documents into searchable formats, such as PDF and PDF/A for digitising archives or records creation, the Library evaluated various options on the market. They examined the following criteria across a number of products: Speed and quality of OCR, range of output formats and compressions, and API/workflow integration possibility. After looking at a number of products the Library selected ABBYY Recognition Server as a best-fit solution.
@@ -41,6 +44,9 @@ Digitisation of 18th century Parliamentary Papers: Coverage includes the Journal
 
 Digitisation of 19th century pamphlets: Over 23,000 19th century pamphlets from UK research libraries that cover the socio-political and economic landscape in Britain were digitised by the LDU and converted into searchable PDFs. Project details and catalogue entry is available at: [www.britishpamphlets.org.uk](http://www.britishpamphlets.org.uk/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Other in-house projects include:
 
 Digitisation of Doctoral Theses: Scanned copies of 20,000 University of Southampton awarded theses were converted to searchable PDFs and are now being made available through the university’s institutional research repository, Eprints Soton. Eprints Soton contains electronic copies of research output, including journal articles, book chapters, conference papers and theses. It also includes unpublished manuscripts and papers. The full text of many of these items is freely available to be used in accordance with copyright and end-user permissions. [eprints.soton.ac.uk](http://eprints.soton.ac.uk/)
@@ -51,6 +57,9 @@ Digitisation of Course Texts: The Library converts printed items into searchable
 
 The Richard Rutt Collection: A collection of 19th century knitting books from the Winchester School of Art Reference Library have been digitised and made available as searchable PDFs via the web. [www.southampton.ac.uk/library/](http://www.southampton.ac.uk/library/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### Conclusion
 
 A powerful and accurate OCR is an integral component of the Library Digitisation Unit’s activities. Thanks to the increased throughput offered by ABBYY Recognition Server, Library staff are freed from the tedious work of manual OCR and millions of pages of documents from the University of Southampton’s collection are available online in digital formats to its students and to the wider world.
@@ -65,6 +74,9 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu).
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

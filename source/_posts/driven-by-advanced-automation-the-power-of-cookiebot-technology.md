@@ -1,7 +1,7 @@
 ---
 title: "Driven by Advanced Automation: The Power of Cookiebot Technology"
-date: 2024-08-20 13:18:34
-updated: 2024-08-22 11:54:28
+date: 2024-08-21T15:20:47.975Z
+updated: 2024-08-22T15:20:47.975Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3a2be4caf338af3c874b626b.jpg
@@ -25,12 +25,18 @@ Engineering & Manufacturing | Document Management
 
 Zweiradspezialist Prophete hat sich seit seiner Gründung 1908 von einer kleinen Fahrradwerkstatt zu einem der führenden Hersteller und Großhandelsunternehmer entwickelt. Diesen Erfolg verdankt der Mittelständler nicht zuletzt seiner exzellenten Servicequalität und vorbildlichen Logistik. Ein elektronisches Unternehmensarchiv spielt dabei eine Schlüsselrolle, da die Bearbeitung der eingehenden Dokumentenströme von den zahlreichen Verwaltungen automatisiert wird. Um dies zu erreichen wandte sich Prophete an zwei Anbieter - an DocuWare wegen ihres Dokumenten Management Systems und an ABBYY wegen ihrer Data Capture Technologie.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ### Der Hintergrund
 
 Um sich langfristig erfolgreich am Markt zu behaupten, müssen Firmen ihren Fokus auf Programme richten, die die Effizienz ihrer Unternehmensprozesse steigern. Zusätzlich sind moderne IT-Konzepte, die die Kommunikation mit Kunden und Vertriebspartnern verbessern, dafür unerlässlich. Um das zu erreichen, entschied sich Prophete, ein zentrales Dokumenten Management System einzuführen. 
 
 Um in mehreren Prophete Standorten auf dieselben Dokumente zugreifen zu können, mussten pro Tag mehrere Faxe mit allen Arten von Daten – von Kundengutachten bis hin zu Rechnungen – ausgetauscht werden. Was mit ein paar Faxen begann, wurde schnell zu einer regelrechten Sturmflut an Dokumenten, wodurch pro Tag bis zu 4.000 Dokumente verschiedenster Art bearbeitet werden mussten. Mit der Zeit entwickelte sich dies zu einem schnell wachsenden und undurchschaubaren Berg an Papier, welcher die Effizienz und Geschwindigkeit, mit der die Angestellten ihre Arbeit ausführen konnten, enorm beeinträchtigte. „Die kontinuierliche Vergrößerung unseres Unternehmens, nicht zuletzt durch Firmenübernahmen an unterschiedlichen Standorten in ganz Deutschland, machte ein zentrales Controlling zunehmend schwieriger“, erläutert Christian Grochtmann, Leiter Controlling und verantwortlicher DMS-Projektleiter. „Ausschlaggebend für die Implementierung eines elektronischen Archivs war jedoch der Wunsch, zentrale Geschäftsprozesse kontinuierlich zu verbessern.“ 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Die Lösung
 
 Eine intuitiv zu bedienende Benutzeroberfläche, die problemlose Anbindung an das ERP-System Navision und die Möglichkeit, ein Workflow-Modul einzubinden, sprachen für DocuWare. „Auch beim Preis-Leistungs-Verhältnis und der einfachen Lizenzierung hebt sich DocuWare positiv ab“, begründet Christian Grochtmann die Wahl. Im Rahmen eines dreitägigen Workshops wurden mit dem nahe angesiedelten DocuWare-Partner die Eckpunkte des DMS-Projekts definiert.
@@ -42,12 +48,23 @@ Ausschlaggebend für den Einsatz der ABBYY-Lösung waren die hohen Erkennungsrat
 
 „Es geht darum, bei den täglich etwa 100 eintreffenden Belastungsanzeigen eine automatische Kopfdatenerfassung durchzuführen, das heißt, innerhalb des Dokuments nach Kundennummer, Rechnungsnummer, Betrag usw. zu suchen. Nach erfolgreicher Analyse werden die digitalisierten Dokumente dann kategorisiert und archiviert. Durch die Archivierung wird automatisch ein Workflow gestartet, der die weitere Bearbeitung dieser Belastungsanzeige bis hin zu der Verbuchung der Zahlung ermöglicht“, erläutert Grochtmann. Der Arbeitsaufwand ist deutlich geringer geworden. Für die Erfassung der 100 Belastungsanzeigen – im Schnitt werden bei einer Anzeige acht Felder ausgelesen – würde ein Mitarbeiter rund 1,5 Stunden benötigen. Durch den Einsatz von ABBYY FlexiCapture wird allein hier circa eine Mannstunde pro Arbeitstag eingespart. Für Prophete bedeutet das nicht nur eine zeitliche Ersparnis, sondern auch, dass Prophete seinen Kunden einen exzellenten Service bieten kann!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Fazit
 
 „Heute ist das zentrale Datenarchiv ein integraler Bestandteil unser Unternehmens-IT. Die Implementierung des Dokumenten-Workflows hatte zur Folge, dass viele Geschäftsprozesse neu strukturiert wurden. Die Effizienzsteigerungen sind so offensichtlich, dass es zu keinem Zeitpunkt Akzeptanzprobleme seitens der Mitarbeiter gab“, resümiert Christian Grochtmann. Egal an welchem Standort sie sitzen – auf Knopfdruck können sich die Mitarbeiter gewünschte Dokumente am Bildschirm anzeigen lassen. Der Dokumentenaustausch via Fax gehört ebenso der Vergangenheit an wie Arbeitsplatzarchive und redundante Ablagen. „Dank schnellerer Bearbeitung unserer Eingangsrechnungen lassen sich heute Skontofristen besser einhalten und somit wird auch dadurch Geld gespart. Alles in allem hat sich die Investition in weniger als zwei Jahren amortisiert“, unterstreicht Grochtmann die positiven Erfahrungen.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -56,6 +73,9 @@ Ausschlaggebend für den Einsatz der ABBYY-Lösung waren die hohen Erkennungsrat
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

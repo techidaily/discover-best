@@ -1,7 +1,7 @@
 ---
 title: Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog
-date: 2024-08-19 12:28:12
-updated: 2024-08-22 10:44:28
+date: 2024-08-21T15:20:48.225Z
+updated: 2024-08-22T15:20:48.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e9f2de3fe739ce800e08e572da8b622265103b19b637342a76d71b38cffa3022.JPG
@@ -114,3 +114,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->

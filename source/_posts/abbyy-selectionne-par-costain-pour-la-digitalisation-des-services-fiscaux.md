@@ -1,7 +1,7 @@
 ---
 title: ABBYY Sélectionné Par Costain Pour La Digitalisation Des Services Fiscaux
-date: 2024-08-19 23:24:13
-updated: 2024-08-22 10:41:44
+date: 2024-08-21T15:20:49.460Z
+updated: 2024-08-22T15:20:49.460Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ecc3916e90aab64f99ff84f9c45d036bcf1e08682351feaa92b6a0ff146b14b9.jpg
@@ -68,3 +68,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->

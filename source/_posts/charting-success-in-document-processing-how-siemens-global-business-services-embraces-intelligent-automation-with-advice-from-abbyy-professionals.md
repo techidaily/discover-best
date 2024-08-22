@@ -1,7 +1,7 @@
 ---
 title: "Charting Success in Document Processing: How Siemens Global Business Services Embraces Intelligent Automation with Advice From ABBYY Professionals"
-date: 2024-08-20 13:42:16
-updated: 2024-08-22 10:51:13
+date: 2024-08-21T15:20:48.719Z
+updated: 2024-08-22T15:20:48.719Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -27,8 +27,17 @@ Digital Intelligence Consultant, **ABBYY**
 
 ![58 Philiphechtl 198X198](https://static2.abbyy.com/abbyycommedia/35560/siemens-logo-forspeakers-129x44.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![58 Philiphechtl 198X198](https://static4.abbyy.com/abbyycommedia/30263/58-philiphechtl-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Phillip Hechtl
 
 Head of Digital Service Management, **Siemens Global Business Services**
@@ -37,6 +46,9 @@ Head of Digital Service Management, **Siemens Global Business Services**
 
 ![59 Irynamaksymets 198X198](https://static4.abbyy.com/abbyycommedia/30312/59-irynamaksymets-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Iryna Maksymets
 
 Senior Enterprise Sales Manager, **ABBYY**
@@ -53,8 +65,14 @@ With the rising request for remote services and subsequent operations, Siemens G
 * ...reduces transaction costs through the application of service-oriented AI, Machine Learning and Process Automation technologies;
 * ...reimagines the changing GBS dynamics by enhancing remote work practices and empowering the finance organisation with digitisation, automation and workforce optimisation through upskilling investments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch now
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -64,6 +82,9 @@ All personal information collected via this method is under full scope of all pr
 
 [![Siemens Global Business Services 2020 Video Preview](https://static3.abbyy.com/abbyycommedia/30422/siemens-global-business-services-2020-video-preview.jpg)](https://www.youtube.com/watch?v=j8qkkAKDreY) 
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)

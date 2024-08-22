@@ -1,7 +1,7 @@
 ---
 title: M-Files Enhances Auto-Management with ABBYY's AI Tech for Advanced Information Control
-date: 2024-08-19 11:12:39
-updated: 2024-08-22 12:23:13
+date: 2024-08-21T15:20:50.321Z
+updated: 2024-08-22T15:20:50.321Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b7228f82dd55952004c9e54eccc979f0193c694cfbf96a3723eb54169ea5205.jpg
@@ -67,3 +67,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->

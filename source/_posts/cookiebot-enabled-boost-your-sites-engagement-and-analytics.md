@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Boost Your Site's Engagement & Analytics"
-date: 2024-08-21 14:30:11
-updated: 2024-08-22 12:16:50
+date: 2024-08-21T15:20:49.123Z
+updated: 2024-08-22T15:20:49.123Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0697447c3ea6b08edc7929364d24aaff9babf43934271a1bc595c07d928a8cf.jpg
@@ -21,18 +21,28 @@ Les camions autonomes sans conducteur, la livraison par drones, les exosquelette
 
 L'automatisation intelligente du transport maritime commence par la numérisation et l'automatisation des documents qui régissent les processus de transport et de logistique.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Télécharger maintenant !
 
 _"Alors qu’une transaction transfrontalière implique plusieurs acteurs et nécessite l’échange de 36 documents et 240 copies en moyenne, moins de 1 % des documents commerciaux sont entièrement numérisés."_ \-Chambre de commerce internationale et Organisation mondiale du commerce
 
 Les expéditeurs mettent en œuvre un traitement intelligent des documents low-code pour améliorer durablement la précision, accélérer les processus et accroître la traçabilité dans le transport de fret et d'autres processus de transport/logistique. Téléchargez cet eBook pour découvrir à quoi ressemblent ces processus automatisés et quels types de résultats il est possible d'obtenir.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
 [Lire l’eBook](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/ebook-intelligent-automation-transportation-shipping-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Obtenez votre exemplaire en remplissant le formulaire.

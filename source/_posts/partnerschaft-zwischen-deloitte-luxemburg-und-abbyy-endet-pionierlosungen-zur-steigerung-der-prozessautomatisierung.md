@@ -1,7 +1,7 @@
 ---
 title: Partnerschaft Zwischen Deloitte Luxemburg Und ABBYY Endet – Pionierlösungen Zur Steigerung Der Prozessautomatisierung
-date: 2024-08-20 15:53:51
-updated: 2024-08-22 11:36:46
+date: 2024-08-21T15:20:48.136Z
+updated: 2024-08-22T15:20:48.136Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e63ca3e1151548a8f471104b.jpg
@@ -41,6 +41,9 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -51,10 +54,16 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

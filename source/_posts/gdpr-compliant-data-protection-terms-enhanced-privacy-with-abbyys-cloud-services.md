@@ -1,7 +1,7 @@
 ---
 title: GDPR Compliant Data Protection Terms – Enhanced Privacy with ABBYY's Cloud Services
-date: 2024-08-20 12:32:33
-updated: 2024-08-22 12:42:25
+date: 2024-08-21T15:20:48.513Z
+updated: 2024-08-22T15:20:48.513Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6244e3ee7a3676c38fda1900.jpg
@@ -205,3 +205,7 @@ sub-processors.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

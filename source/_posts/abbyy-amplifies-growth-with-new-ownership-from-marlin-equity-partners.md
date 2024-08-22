@@ -1,7 +1,7 @@
 ---
 title: ABBYY Amplifies Growth with New Ownership From Marlin Equity Partners
-date: 2024-08-19 22:17:20
-updated: 2024-08-22 10:14:49
+date: 2024-08-21T15:20:49.455Z
+updated: 2024-08-22T15:20:49.455Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b565f942655d5f5347ebbc9b.jpg
@@ -58,3 +58,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

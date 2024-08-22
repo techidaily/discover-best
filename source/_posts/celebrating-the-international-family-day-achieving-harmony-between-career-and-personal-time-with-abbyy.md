@@ -1,7 +1,7 @@
 ---
 title: "Celebrating the International Family Day: Achieving Harmony Between Career and Personal Time with ABBYY"
-date: 2024-08-20 19:53:57
-updated: 2024-08-22 12:32:34
+date: 2024-08-21T15:20:47.866Z
+updated: 2024-08-22T15:20:47.866Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a44de758792af2fb67431bc0cd10b70e0176e5a8a3e2c53a5711bc4054272247.jpg
@@ -53,6 +53,9 @@ I have a constant source of support and someone to bounce ideas off.
 
 Anna, Customer Service Expert
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Ryan
 
 ![ryan-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/ryan-600x600.png)
@@ -81,6 +84,15 @@ After having my first child, I found myself seeking greater flexibility in my ca
 
 Steve, Head of Talent Acquisition
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### Aleksandar
 
 ![aleksandar-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/aleksandar-600x600.png)
@@ -95,10 +107,21 @@ Initially, my biggest concern was how to organize my time and find a balance bet
 
 Aleksander, Order Fulfillment Specialist
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Konstantin and Ekaterina
 
 ![konstantin-ekaterina-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/konstantin-ekaterina-600x600.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In our Cyprus Research Development (R&D) and Product Development teams, we found **Konstantin** and **Ekaterina** who shared a bit about their experience working as a married couple with children at ABBYY:
 
 “Truth be told, ABBYY isn't our first rodeo together. We hustled as waiters back in our student days, then rocked it out at another IT joint.
@@ -113,10 +136,17 @@ Yeah, we chat about work at home sometimes, but we make sure to switch it off, t
 
 Konstantin and Ekaterina, R&D and Product Development
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### Rahul
 
 ![rahul-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/rahul-600x600.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 When asked about how working remotely impacted his family dynamics compared to working in a traditional office setting, **Rahul**, Partner Innovation and Enablement Consultant, who you might remember from our [heartwarming Valentine's Day story](https://www.linkedin.com/posts/abbyy%5Flifeatabbyy-abbyy-valentinesday-activity-7163133907616395264-uMgS), told us that flexible working arrangements have been a game-changer for his family.
 
 "The big win? No more commuting. This means we get more time together as a family—time we can spend on fun activities, sharing meals, or just being there for each other.," he told us.
