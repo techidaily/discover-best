@@ -1,7 +1,7 @@
 ---
 title: NTTドコモの多言語サポート強化：ABBYYの画像文字認識技術によるブレークスルー
-date: 2024-08-21T15:20:49.343Z
-updated: 2024-08-22T15:20:49.343Z
+date: 2024-08-26T00:09:37.431Z
+updated: 2024-08-27T00:09:37.431Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bd07316941701058ade8268783f1b22f361afa62011ca186263bd79d53a465d1.png
@@ -58,3 +58,56 @@ Connect with us
 <a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
 <a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>[New] 2024 Approved  Discover the Power of YouTube Editing  A Compre Written in Code  The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-selection-identifying-best-12-vloggers-camera-choices/"><u>[New] 2024 Approved  The Ultimate Selection  Identifying Best 12 Vloggers' Camera Choices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-easy-to-follow-steps-for-adding-vimeo-clips-to-ppts-for-2024/"><u>[New] Easy-to-Follow Steps for Adding Vimeo Clips to PPTs for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-freeing-up-youtube-views-no-more-grey-lines/"><u>[Updated] Freeing Up YouTube Views  No More Grey Lines</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-best-nine-essential-live-gaming-services/"><u>[Updated] In 2024, Best Nine  Essential Live Gaming Services</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-uniting-friends-across-operating-systems-with-skype-groups/"><u>[Updated] In 2024, Uniting Friends Across Operating Systems with Skype Groups</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-miniature-asian-houses-innovative-designs-for-mcers/"><u>2024 Approved  Miniature Asian Houses  Innovative Designs for MCers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigate-through-windows-10s-media-importation-elegantly/"><u>2024 Approved  Navigate Through Windows 10'S Media Importation Elegantly</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyy-globalidp-entwicklungen-und-erkenntnisse-in-der-jahresanalyse/"><u>ABBYY GlobalIDP: Entwicklungen Und Erkenntnisse in Der Jahresanalyse</u></a></li>
+<li><a href="https://discover-best.techidaily.com/accelerating-financial-workflows-with-mobile-based-expense-tracking-expert-opinion-on-process-automation-at-abbyy-blog/"><u>Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog</u></a></li>
+<li><a href="https://discover-best.techidaily.com/advancing-american-public-health-how-abbyy-powers-fdas-objectives/"><u>Advancing American Public Health: How ABBYY Powers FDA's Objectives</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/android-users-rejoice-chatgpt-is-now-at-your-fingertps/"><u>Android Users Rejoice: ChatGPT Is Now at Your Fingertps</u></a></li>
+<li><a href="https://discover-best.techidaily.com/artificial-intelligence-breakthroughs-accelerating-roi-in-forward-thinking-companies/"><u>Artificial Intelligence Breakthroughs: Accelerating ROI in Forward-Thinking Companies</u></a></li>
+<li><a href="https://discover-best.techidaily.com/automating-invoicing-efficiency-abbyys-specialized-software-transforms-large-scale-property-management-operations/"><u>Automating Invoicing Efficiency: ABBYY's Specialized Software Transforms Large-Scale Property Management Operations</u></a></li>
+<li><a href="https://discover-best.techidaily.com/bespoke-services-fur-komfortable-bankkunden/"><u>Bespoke Services Für Komfortable Bankkunden</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-traffic-with-cookiebot-integration-an-seo-edge/"><u>Boost Traffic with Cookiebot Integration: An SEO Edge</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-your-site-with-cookiebot-technology-the-ultimate-personalization-solution/"><u>Boost Your Site with Cookiebot Technology – The Ultimate Personalization Solution</u></a></li>
+<li><a href="https://discover-best.techidaily.com/breaking-barriers-in-reading-texthelp-and-abbyys-solutions-for-dyslexia/"><u>Breaking Barriers in Reading: Texthelp™ and ABBYY's Solutions for Dyslexia</u></a></li>
+<li><a href="https://discover-best.techidaily.com/checklisten-fur-digitale-transformation-in-der-versicherungsbranche/"><u>Checklisten Für Digitale Transformation in Der Versicherungsbranche</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-custom-experiences-revolutionizing-user-engagement-through-smart-tracking/"><u>Cookiebot-Driven Custom Experiences: Revolutionizing User Engagement Through Smart Tracking</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-personalization-for-enhanced-user-experience/"><u>Cookiebot-Driven Personalization for Enhanced User Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-analytics-streamlining-conversion-optimization-and-user-behavior-insights/"><u>Cookiebot-Enabled Analytics: Streamlining Conversion Optimization and User Behavior Insights</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-features-enhance-your-websites-user-experience/"><u>Cookiebot-Enabled Features: Enhance Your Website's User Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-personalization-enhance-user-experience-and-drive-engagement/"><u>Cookiebot-Enabled Personalization: Enhance User Experience & Drive Engagement</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-user-experience-personalize-and-capture-leads-with-advanced-tracking/"><u>Cookiebot-Enhanced User Experience: Personalize and Capture Leads with Advanced Tracking</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-user-tracking-optimizing-your-websites-performance/"><u>Cookiebot-Enhanced User Tracking: Optimizing Your Website's Performance</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-the-key-ingredient-for-advanced-web-analytics-and-personalization/"><u>Cookiebot: The Key Ingredient for Advanced Web Analytics and Personalization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-your-key-to-effortless-website-analytics-and-personalization/"><u>Cookiebot: Your Key to Effortless Website Analytics and Personalization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/drive-your-site-traffic-with-cookiebots-powerful-tracking-solutions/"><u>Drive Your Site Traffic with Cookiebot's Powerful Tracking Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driven-with-cookiebot-technology-enhance-your-websites-performance/"><u>Driven with Cookiebot Technology: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/elevate-your-voice-discovering-the-leading-vocal-changer-applications-for-android-for-2024/"><u>Elevate Your Voice  Discovering the Leading Vocal Changer Applications for Android for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/elevating-website-visibility-essential-strategies-for-effective-page-titles-and-descriptions/"><u>Elevating Website Visibility: Essential Strategies for Effective Page Titles and Descriptions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-conversion-rates-with-automated-lead-capture-the-power-of-cookiebot/"><u>Enhanced Conversion Rates with Automated Lead Capture: The Power of Cookiebot</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-marketing-insights-with-cookiebot-enabled-analytics-solutions/"><u>Enhanced Marketing Insights with Cookiebot-Enabled Analytics Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-user-engagement-with-automated-cookiebot-integration/"><u>Enhanced User Engagement with Automated Cookiebot Integration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-with-advanced-analytics-from-cookiebot/"><u>Enhanced with Advanced Analytics From Cookiebot</u></a></li>
+<li><a href="https://discover-best.techidaily.com/expanding-horizons-abbyys-process-intelligence-enhances-capabilities-via-worldwide-collaborations/"><u>Expanding Horizons: ABBYY's Process Intelligence Enhances Capabilities via Worldwide Collaborations</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-dell-wd19-driver-software-easy-install-process/"><u>Get the Latest Dell WD19 Driver Software – Easy Install Process</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-12-mini-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 12 mini Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-13-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone 13? How to Fix it?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-combining-images-seamlessly-pc-edition/"><u>In 2024, Combining Images Seamlessly  PC Edition</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-90-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor 90 Pro FRP Without Computer</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/melodic-mambos-macaws/"><u>Melodic Mambos Macaws</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/obtain-updated-drivers-for-your-amd-radeon-pro-w5700-on-windows-11-10-and-7/"><u>Obtain Updated Drivers for Your AMD Radeon Pro W5700 on Windows 11, 10 & 7</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/solo-sounder-snafu-remedy-plan-for-2024/"><u>Solo Sounder Snafu  Remedy Plan for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/sustainable-tools-and-practices/"><u>Sustainable Tools and Practices</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-boosting-your-pcs-audio-output-in-windows-10/"><u>Troubleshooting Tips: Boosting Your PC's Audio Output in Windows 10</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unveiling-truth-understanding-youtubes-seo-keywords/"><u>Unveiling Truth  Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyy-flexicapture110it/"><u>インボイスを超速化！ABBYY FlexiCapture®で処理時間1/10、企業IT進化のカギ</u></a></li>
+</ul></div>
