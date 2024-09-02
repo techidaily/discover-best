@@ -1,7 +1,7 @@
 ---
 title: "IFunBox 初学者ガイド: IFunBoxを利用する最新手順とトラブルシューティング"
-date: 2024-09-01 14:55:45
-updated: 2024-09-02 10:56:21
+date: 2024-09-01T18:10:33.668Z
+updated: 2024-09-02T18:10:33.668Z
 categories:
   - winxdvd
 thumbnail: https://thmb.techidaily.com/13e7f7e7be76604c5dab6c596dcfa1c029fcc151622c342e3e61d624bd5a3ac1.jpg
@@ -44,6 +44,12 @@ Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 
 
 [![](https://www.winxdvd.com/resource/../seoimg/win.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [![](https://www.winxdvd.com/resource/../seoimg/mac.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [Free Download](https://tools.techidaily.com/winxdvd/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2024 Best Ways to Freely Rip DVDs to MKV on Windows 10/11 & Mac
 
 | Pros                       | Cons                                                                                                                 | More Info                                                                             |                                                          |
@@ -54,6 +60,9 @@ Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 
 | **VLC Media Player**       | Easily rip unprotected DVDs to MKV on Windows and Mac.                                                               | It doesn't support protected DVDs and the options to adjust the settings are limited. | [Read More](https://tools.techidaily.com/winxdvd/products/)       |
 | **Movavi Video Converter** | Rip unprotected DVDs to MKV and various other formats with fast speed.                                               | It can't rip protected DVDs to MKV.                                                   | [Read More](https://tools.techidaily.com/winxdvd/products/)    |
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Reasons for Ripping DVD to MKV
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a11.png)1\. Ripping DVD will Remove DVD Copy Protections** 
@@ -66,6 +75,9 @@ If you have ever [encoded DVD movies into MP4](https://tools.techidaily.com/winx
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a7.png)3\. MKV Container Is as Universal as MP4 with High Quality** 
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 Since MKV supports any type of video/audio tracks and subtitles inside, and is quite efficient for storage and streaming, it's widely used on video transmitting. Usually, common DVD rippers can help rip a 4-8 GB DVD movie to a digital file in hundreds of MB, but you will get much quality loss. Only some seasoned DVD to MKV backup tools balance well on video file size and DVD ripping speed.
 
 ## Part 2\. How to Convert DVDs to MKV Losslessly with WinX DVD Ripper
@@ -89,6 +101,9 @@ Tips: It also supports importing DVD folder and ISO image files for converting t
 
 ![Convert DVD to MP4 Windows 10/11 with WMP alternative](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/drp-interface-700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2\. Choose MKV as Target Format**
 
 After the DVD content is fully imported, the ripper will bypass copy protection and right check main title automatically. What you need to do is to define target format: Output Profile -> DVD Backup -> Backup full title to MKV. As the interface shows, it will back up all videos, audios and subtitles.
@@ -101,6 +116,9 @@ After the DVD content is fully imported, the ripper will bypass copy protection 
 
 ![WinX DVD Ripper Platinum - Edit](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/edit-add-external-subtitle-700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 **Step 4\. Start DVD to MKV Ripping**
 
 If you do not have other advanced and personalized settings, just hit "**RUN**" to beging DVD to MKV ripping. To ensure a stable DVD to MKV ripping process with no error, you're suggested to choose "**Safe Mode**".
@@ -125,6 +143,9 @@ Now let's download MakeMKV and learn how to convert DVD to MKV with MakeMKV.
 
 ![Rip DVD to MKV with MakeMKV](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/makemkv-select-titles-audios-subtitles.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 3.** Specify an output folder to store the resulting MKV file.
 
 **Step 4.** Hit Make MKV button to begin ripping DVD to MKV. 
@@ -144,6 +165,9 @@ First of all, let's learn how to download and install libdvdcss for Handbrake:
 
 ![Rip DVD to MKV with HandBrake and libdvdcss](https://www.winxdvd.com/resource/../seo-img/handbrake-troubleshoot-tips/libdvdcss.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After you finish the installation of HandBrake and libdvdcss, you can follow the steps to rip DVD to MKV with HandBrake.
 
 **Step 1.** Put target DVD to your optical drive. Open HandBrake and select your DVD. Then, HandBrake will scan DVD titles.
@@ -156,6 +180,9 @@ After you finish the installation of HandBrake and libdvdcss, you can follow the
 
 **Step 4.** Hit Start Encode button to begin ripping DVD to MKV. Note: HandBrake will decode the DVD and re-encode the video into MKV in H264, H265, or other codecs, during which quality loss will happen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## Part 5\. How to Rip DVD to MKV with VLC
 
 The famous media player VLC offers the ability to convert DVDs to MKV and various other formats. Some users may already have it on their computer. So there's a good chance that you don't need to get extra software to rip DVDs to MKV. 
@@ -179,6 +206,12 @@ Now let's learn how to rip DVDs to MKV usingi VLC?
 
 ![Rip DVD to MKV with VLC](https://www.winxdvd.com/resource/../seo-img/rip-dvd-mp4/vlc-output.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 6\. How to Rip DVD to MKV with Movavi Video Converter
 
 Movavi Video Converter is a versatile video converter which has the function to rip a DVD into MKV and various other formats. As a video converter, there are many tools to compress the video, adjust colors, insert effects, enhance the video quality, and more. You can rely on its reliable ripping performance. However, this DVD to MKV ripper doesn't support copy protections. And it you need to rip an unprotected DVD to MKV, there are many free alternatives. 
@@ -204,8 +237,14 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
 * [6 Ways to Convert DVD to MP4 on Mac for Free](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 * [Top 10 Free DVD Players for Windows 10/11](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 * [Best Preset Settings for HandBrake DVD to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 * [\[2024\] How to Free Convert DVD Video\_TS to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -220,3 +259,55 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-journey-through-virtual-realms-on-youtubes-channel/"><u>[New] 2024 Approved  Journey Through Virtual Realms on YouTube's Channel</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-refined-conference-aesthetics-the-process-to-blur-backgrounds/"><u>[New] 2024 Approved  Refined Conference Aesthetics  The Process to Blur Backgrounds</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-capture-save-your-guide-to-androidmac-video-savings/"><u>[New] In 2024, Capture, Save  Your Guide to Android/Mac Video Savings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-guide-to-mounting-a-tripod-for-vloggers/"><u>[Updated] In 2024, Essential Guide to Mounting a Tripod for Vloggers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-av1-for-the-uncharted-beginner/"><u>2024 Approved  AV1 for the Uncharted Beginner</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyyai-abbyy/"><u>ABBYYのAI駆使したドキュメント管理解決策:学習型自動レイアウトと情報抜き出し - ABBYYブログ</u></a></li>
+<li><a href="https://discover-best.techidaily.com/anubhav-saxena-visionary-director-at-the-helm-of-abbyys-executive-structure/"><u>Anubhav Saxena: Visionary Director at the Helm of ABBYY's Executive Structure</u></a></li>
+<li><a href="https://discover-best.techidaily.com/automated-user-tracking-with-the-help-of-cookiebot-technology/"><u>Automated User Tracking with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-website-analytics-with-cookiebots-advanced-behavioral-recording-tools/"><u>Boost Website Analytics with Cookiebot's Advanced Behavioral Recording Tools</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-your-site-with-cookiebot-technology-experience-next-level-analytics-and-conversion-optimization/"><u>Boost Your Site with Cookiebot Technology – Experience Next-Level Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/charting-success-in-document-processing-how-siemens-global-business-services-embraces-intelligent-automation-with-advice-from-abbyy-professionals/"><u>Charting Success in Document Processing: How Siemens Global Business Services Embraces Intelligent Automation with Advice From ABBYY Professionals</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-proprietary-technology-enhanced-sites/"><u>Cookiebot Proprietary Technology Enhanced Sites</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-analytics-and-conversion-optimization/"><u>Cookiebot-Driven Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-conversions-boost-your-sites-success/"><u>Cookiebot-Driven Conversions: Boost Your Site's Success</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-personalization-enhance-your-websites-visitor-experience/"><u>Cookiebot-Driven Personalization: Enhance Your Website's Visitor Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-solutions-for-enhanced-site-engagement/"><u>Cookiebot-Driven Solutions for Enhanced Site Engagement</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-personalization/"><u>Cookiebot-Enabled Personalization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-personalization-and-tracking-solutions/"><u>Cookiebot-Enabled Personalization and Tracking Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics and Personalization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-enhance-your-websites-personalization-with-leading-ai-technology/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization with Leading AI Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-user-experience-the-secret-ingredient-for-successful-online-presence/"><u>Cookiebot-Enhanced User Experience: The Secret Ingredient for Successful Online Presence</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhance-your-site-traffic-with-smart-seo-solutions/"><u>Cookiebot: Enhance Your Site Traffic with Smart SEO Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebots-dynamic-tracking-solutions-for-optimized-user-experience/"><u>Cookiebot's Dynamic Tracking Solutions for Optimized User Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/die-dynamik-zwischen-etl-and-elt-schlusselaspekte-fur-moderne-datenerfassung/"><u>Die Dynamik Zwischen ETL & ELT - Schlüsselaspekte Für Moderne Datenerfassung</u></a></li>
+<li><a href="https://discover-best.techidaily.com/drive-your-website-traffic-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Drive Your Website Traffic with Automated Conversion Tracking: The Power of Cookiebot</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driving-forward-with-teamwork-and-novel-approaches-in-the-insurance-industry/"><u>Driving Forward with Teamwork and Novel Approaches in the Insurance Industry</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-site-visibility-with-the-power-of-cookiebot-seo-solutions/"><u>Enhance Your Site Visibility with the Power of Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-site-performance-with-advanced-cookiebot-technology/"><u>Enhanced Site Performance with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-digital-interactions-with-cookiebot-technology/"><u>Enhancing Digital Interactions with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-your-site-with-cookiebots-cutting-edge-analytics-tools/"><u>Enhancing Your Site with Cookiebot's Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://discover-best.techidaily.com/high-performance-smartwatches-mastering-watchos-and-wear-os-at-60-fps-insights-from-the-abbyy-tech-team/"><u>High-Performance Smartwatches: Mastering WatchOS & Wear OS at 60 FPS - Insights From the ABBYY Tech Team</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-nubia-red-magic-8s-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Nubia Red Magic 8S Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-seamlessly-share-videos-on-mstream-services/"><u>In 2024, Seamlessly Share Videos on MStream Services</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-the-unbeatable-performance-of-the-elite-series-ebox-one-controller/"><u>In-Depth Analysis: The Unbeatable Performance of the Elite Series Ebox One Controller.</u></a></li>
+<li><a href="https://discover-best.techidaily.com/introducing-abbyy-finereader-server-the-new-face-of-previously-known-abbyy-recognition/"><u>Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/luxembourg-based-deloitte-enhances-client-services-through-strategic-abbyy-collaboration/"><u>Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/master-your-nighttime-routine-with-aabbs-insights-on-call-blocking-restful-sleep-and-selecting-the-perfect-film/"><u>Master Your Nighttime Routine with AABB's Insights on Call Blocking, Restful Sleep & Selecting the Perfect Film</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maximizing-business-outcomes-with-cutting-edge-ai-and-content-analytics-expertise-from-the-abbyy-perspective/"><u>Maximizing Business Outcomes with Cutting-Edge AI and Content Analytics | Expertise From the ABBYY Perspective</u></a></li>
+<li><a href="https://discover-best.techidaily.com/model-a-1908-6-fixed-rear-sight-no-firing-pin-block-or-safety-feature-unfluted-grip/"><u>Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimize-your-enterprise-transformation-journey-through-process-intelligence-techniques/"><u>Optimize Your Enterprise Transformation Journey Through Process Intelligence Techniques</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimizing-online-presence-with-cookiebot-technology/"><u>Optimizing Online Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://fox-info.techidaily.com/painting-with-light-an-experts-guide-to-color-grading-for-2024/"><u>Painting with Light  An Expert's Guide to Color Grading for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/personalized-engagement-boosted-by-cookiebot-technology/"><u>Personalized Engagement Boosted by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-cancer-therapy-top-tier-clinic-boosts-efficiency-and-care-quality-with-abbyy-idp-integration/"><u>Revolutionizing Cancer Therapy: Top-Tier Clinic Boosts Efficiency and Care Quality with ABBYY IDP Integration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/sichern-sie-sich-einen-vorteil-gegenuber-digital-nativen-konkurrenten-in-der-finanzbranche-mit-abbyy-checklisten-strategien-zum-gelingen/"><u>Sichern Sie Sich Einen Vorteil Gegenüber Digital Nativen Konkurrenten in Der Finanzbranche Mit ABBYY Checklisten: Strategien Zum Gelingen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/snapsizesecrets-perfecting-photo-and-video-sizes-in-instagram/"><u>SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram</u></a></li>
+<li><a href="https://discover-best.techidaily.com/spotlighting-abbyys-cutting-edge-solutions-breakthroughs-in-customer-engagement-and-partner-synergy/"><u>Spotlighting ABBYY's Cutting-Edge Solutions: Breakthroughs in Customer Engagement & Partner Synergy</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/streamlining-win-10118-graphics-functions/"><u>Streamlining Win 10/11/8 Graphics Functions</u></a></li>
+</ul></div>
