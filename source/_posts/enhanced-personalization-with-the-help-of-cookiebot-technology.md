@@ -1,12 +1,18 @@
 ---
 title: Enhanced Personalization with the Help of Cookiebot Technology
-date: 2024-08-26T00:06:55.276Z
-updated: 2024-08-27T00:06:55.276Z
+date: 2024-09-05T11:27:43.043Z
+updated: 2024-09-06T11:27:43.043Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5497305e7ede52ac11b29b1b9923a18c5f2da5c481f0266449b3910934d0e548.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Personalization with the Help of Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,12 +25,24 @@ April 26, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/35617/time-finserv-848x444.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Time is all around us, it is one of the most mysterious forces in the universe. What makes time such a precious resource is that you can never get wasted time back. Time has been the theme of great literary works from William Shakespeare to T. S. Eliot, Emily Dickinson, Maya Angelou, and more contemporaries like The Eagles, Collective Soul, and Keith Urban.
 
 [View the Infographic: Solving Document Challenges in Financial Services (ABBYY Survey Results)](https://static2.abbyy.com/abbyycommedia/35338/infographic-financialservices-digital-transformation-survey-2021-en.pdf?itm%5Fsource=corpblog-en)
 
 So, if time is a fundamental condition of human experience, how can we still tolerate so much wasted time in our day-to-day? How can it be that, in a time when technology envelops our lives, the financial services industry is still so heavily bogged down by time-consuming, manual processes? In processes that we’ve been trying to gain efficiencies for years, such as onboarding, it can still take more than a week—or sometimes, even months to onboard new customers.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Don’t go wasting my precious time
 
 Financial services workers are wasting up to 8 hours per week trying to find, understand, and process data in documents. According to a recent [ABBYY survey](https://static2.abbyy.com/abbyycommedia/35338/infographic-financialservices-digital-transformation-survey-2021-en.pdf?itm%5Fsource=corpblog-en), this wasted time is resulting in delays in completing important processes, an increase in errors, leaving less time to respond to inquiries, resulting in bad customer experience.
@@ -43,10 +61,19 @@ IDP can replace manual processing–enabling not only automation, but also creat
 
 ![colleagues using IDP for intelligent automation in banking](https://static1.abbyy.com/abbyycommedia/35503/financialservices-content-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Implementing a banking digital transformation strategy leveraging low-code / no-code solutions can really change the game, thanks to the advancements of artificial intelligence (AI), machine learning (ML), and natural language processing (NLP).
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Leverage the power of the Marketplace
 
@@ -61,15 +88,13 @@ According to [Forrester](https://www.forrester.com/report/How-To-Succeed-With-Ma
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Cheryl Chiodi
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

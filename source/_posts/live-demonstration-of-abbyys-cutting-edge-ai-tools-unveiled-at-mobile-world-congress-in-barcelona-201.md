@@ -1,22 +1,40 @@
 ---
 title: Live Demonstration of ABBYY's Cutting-Edge AI Tools Unveiled at Mobile World Congress in Barcelona, 201
-date: 2024-08-26T00:07:59.252Z
-updated: 2024-08-27T00:07:59.252Z
+date: 2024-09-05T11:27:44.084Z
+updated: 2024-09-06T11:27:44.084Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b5b3640eb8447a8da8a74738199b8b360c48cf8e077b803fb67d66a6527f20f0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Live Demonstration of ABBYY's Cutting-Edge AI Tools Unveiled at Mobile World Congress in Barcelona, 201
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to Showcase Real-Time AI-Enabled Solutions at MWC Barcelona 2019
 
 February 06, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Enter the new era of frictionless customer experience with ABBYY’s instant mobile capture at stand 8.0J25, NEXTech Hall 8.0._
 
 ABBYY®, a global leader in content IQ technologies and solutions, today announced it is exhibiting at [MWC Barcelona 2019](https://www.mwcbarcelona.com/ "MWC Barcelona 2019"), the international tradeshow for the mobile industry that will gather innovators and influencers to explore how Intelligent Connectivity will shape the future. The conference will take place in Barcelona, Spain February 25-28, 2019\. At stand 8.0J25, NEXTech Hall 8.0, ABBYY will demonstrate how real-time mobile data capture can support their digital transformation strategy and deliver frictionless customer experience eliminating barriers and boosting engagement. ABBYY solutions will also be showcased during the Transformative AI Topic Tour putting a spotlight on the company’s AI technologies for digital transformation and robotic process automation (RPA).
@@ -66,9 +84,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-triller-vs-tiktok-a-comparative-analysis-max-156-chars/"><u>[New] 2024 Approved  Triller Vs. TikTok  A Comparative Analysis (Max 156 Chars)</u></a></li>

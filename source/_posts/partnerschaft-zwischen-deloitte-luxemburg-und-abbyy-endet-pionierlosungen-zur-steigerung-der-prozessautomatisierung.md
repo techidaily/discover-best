@@ -1,7 +1,7 @@
 ---
 title: Partnerschaft Zwischen Deloitte Luxemburg Und ABBYY Endet – Pionierlösungen Zur Steigerung Der Prozessautomatisierung
-date: 2024-08-26T00:07:09.680Z
-updated: 2024-08-27T00:07:09.680Z
+date: 2024-09-05T11:27:43.272Z
+updated: 2024-09-06T11:27:43.272Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e63ca3e1151548a8f471104b.jpg
@@ -11,14 +11,38 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Deloitte Luxemburg und ABBYY schließen Partnerschaft, um Kunden bei der Automatisierung ihrer Geschäftsprozesse zu unterstützen
 
 23\. März 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Deloitte Luxemburg und ABBYY sind eine [Partnerschaft](https://tools.techidaily.com/abbyy/products/) eingegangen, die es ihren Kunden ermöglichen wird, Geschäftsprozesse zu beschleunigen und ihre Rentabilität zu steigern. Das Unternehmen wird Kunden die Lösung für intelligente Dokumentenverarbeitung (IDP) von ABBYY anbieten, welche die besten Fähigkeiten aus NLP, maschinellem Lernen und fortschrittlichen Erkennungsfunktionen vereint.
 
 ABBYY stellt die weltweit fortschrittlichste Digital Intelligence-Plattform für den Unternehmensmarkt bereit. Die IDP-Lösungen von ABBYY bieten nicht nur eine hochwertige Text- und Bilderkennung, sondern auch eine Technologie zur Konvertierung von Dokumenten, die sich nahtlos in alle gängigen intelligenten Automatisierungsplattformen integrieren lässt. Die Plattform verarbeitet jede Art von Dokumenten, von einfachen Formularen bis hin zu komplexen Freiform-Dokumenten und jede Auftragsgröße, von einzelnen Ad-hoc-Dokumenten bis hin zu großen Batch-Jobs, die strenge Service Level Agreements (SLAs) erfordern. Auf diese Weise hilft ABBYY Unternehmen dabei, Einblick in alle Daten zu gewinnen, die sie besitzen – sowohl in strukturierte Informationen, wie z.B. Berichte, als auch in unstrukturierte Informationen, wie z.B. E-Mails.
@@ -42,7 +66,10 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -55,14 +82,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

@@ -1,22 +1,46 @@
 ---
 title: "Spotlighting ABBYY's Cutting-Edge Solutions: Breakthroughs in Customer Engagement & Partner Synergy"
-date: 2024-08-26T00:08:52.841Z
-updated: 2024-08-27T00:08:52.841Z
+date: 2024-09-05T11:27:45.110Z
+updated: 2024-09-06T11:27:45.110Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c4be10a970b234d5f6880acef4bdb2e4828d9b824f3ccac5078e8475f10ac115.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spotlighting ABBYY's Cutting-Edge Solutions: Breakthroughs in Customer Engagement & Partner Synergy
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Technology Summit Highlights Customer and Channel Partner Innovations
 
 November 09, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Record Attendance Demonstrates Growing Demand for Machine Learning Technology and Artificial Intelligence within Capture Software_
 
 ABBYY®, a global provider of intelligent capture solutions to improve business outcomes, awarded customers and partners for their innovative go-to-market strategies and deployments using its intelligent capture solutions at its ABBYY Technology Summit (#ABBYYSummit17) last week. The fifth annual event took place at the Marriott Marquis San Diego Marina and attracted its largest attendance to date with nearly 300 customers and partners from more than a dozen countries learning about the latest trends in capture software, including robotic process automation, machine learning technology, artificial intelligence, natural language processing and text analytics that are driving digital transformation initiatives.
@@ -61,9 +85,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-links.techidaily.com/new-in-2024-elevate-your-iphones-capabilities-with-advanced-gif-use/"><u>[New] In 2024, Elevate Your iPhone's Capabilities with Advanced GIF Use</u></a></li>

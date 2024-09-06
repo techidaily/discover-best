@@ -1,22 +1,40 @@
 ---
 title: Exploring the Synergy Between ABBYY's Advanced OCR and Vivino, Leading Wine App Worldwide - Exclusive Insights From ABBYY Newsroom
-date: 2024-08-26T00:06:59.024Z
-updated: 2024-08-27T00:06:59.024Z
+date: 2024-09-05T11:27:43.094Z
+updated: 2024-09-06T11:27:43.094Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196b34a2ea4b98d961a480d427.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exploring the Synergy Between ABBYY's Advanced OCR and Vivino, Leading Wine App Worldwide - Exclusive Insights From ABBYY Newsroom
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY’s OCR Helps Power Vivino, the World’s Most Popular Wine App
 
 January 12, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a leading provider of document recognition, data capture, and linguistic technologies, today announced that [Vivino](https://www.vivino.com/), maker of the world’s most downloaded mobile wine app\*, has successfully incorporated ABBYY’s optical character recognition (OCR) technology into their product in order to extract information from wine lists in restaurants. When ordering wine, customers can use the Vivino app to take a photo of a wine offering, and instantly see useful information to help them choose the right bottle. The integrated ABBYY OCR technology extracts the text from the photograph, which is used to access Vivino’s database of ratings and tasting notes from 12 million users, the world’s largest wine library.\* 
 
 "_There's a problem in wine: More than 75% of wines are never rated by experts, leaving wine drinkers with little information about most of the wines they are considering drinking. This is where Vivino’s crowdsourced ratings, supplied by millions of users, become useful as we have ratings for almost every wine in the world"_ says Torben Mottes, vice president of product management, Vivino. "_What’s more, along with details like wine varieties, ratings, and user reviews, we've recently added a list of online merchants to the wine pages in our app, so you can easily buy that new wine you just enjoyed in the restaurant._"
@@ -29,6 +47,12 @@ To learn more about incorporating ABBYY technologies and toolkits into your prod
 
 \* _based on Vivino’s company data_
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY UK is a member of the ABBYY Group and supports sales and marketing activities in Western Europe. ABBYY is a leading provider of document recognition, data capture, and linguistic technologies and services. Its products include the ABBYY FineReader line of optical character recognition (OCR) applications, ABBYY FlexiCapture line of data capture solutions, and development tools. ABBYY offers Professional Services to help customers implementing business solutions based on ABBYY’s products. Paper-intensive organisations from all over the world use ABBYY solutions to automate time- and labour-consuming tasks and to streamline business processes. ABBYY products are used in large-scale government projects such as those of Australian Taxation Office, Lithuanian Tax Inspectorate, Ministry of Education of Ukraine, Montgomery County Government of the USA and the Government of Canada. Companies that license ABBYY technologies include BancTec, Canon, EMC/Captiva, Hewlett-Packard, KnowledgeLake, Microsoft, NewSoft, Notable Solutions, Samsung Electronics and more. ABBYY OCR applications are shipped with equipment from the world’s top manufacturers such as Epson, Fujitsu, Fuji Xerox, Microtek, Panasonic, PFU, Plustek, Ricoh, Toshiba, and Xerox. ABBYY is an international company with offices in Germany, the UK, France, Spain, Ukraine, Cyprus, the United States, Canada, Australia, Japan and Taiwan. For more information, visit [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
@@ -36,7 +60,10 @@ ABBYY UK is a member of the ABBYY Group and supports sales and marketing activit
 _ABBYY, the ABBYY Logo, FineReader, ADRT, FlexiCapture, and FlexiLayout are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognised._
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### For more information, please contact:
 
@@ -53,7 +80,10 @@ E-Mail: press\_eu@abbyy.com
 Web: [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### About Vivino
 

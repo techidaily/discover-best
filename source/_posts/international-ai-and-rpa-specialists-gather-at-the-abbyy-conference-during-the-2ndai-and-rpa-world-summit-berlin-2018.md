@@ -1,22 +1,40 @@
 ---
 title: International AI and RPA Specialists Gather at the ABBYY Conference During the 2^Nd^AI & RPA World Summit, Berlin 2018
-date: 2024-08-26T00:07:57.107Z
-updated: 2024-08-27T00:07:57.107Z
+date: 2024-09-05T11:27:44.053Z
+updated: 2024-09-06T11:27:44.053Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d10871bf9176c5cb0128f25d3d2d16f8b628e764cfef6c9d047807d2b22fa28f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## International AI and RPA Specialists Gather at the ABBYY Conference During the 2^Nd^AI & RPA World Summit, Berlin 2018
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Künstliche Intelligenz und Robotic Process Automation – der nächste Schritt auf dem Weg der Digitalen Transformation
 
 7\. Juni 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY trifft auf dem AI & RPA World Summit 2018 in Berlin internationale Experten für künstliche Intelligenz und Robotic Process Automation, um zu diskutieren, wie Unternehmen die Digitale Transformation mit intelligenten Technologien meistern._
 
   
@@ -76,14 +94,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-info.techidaily.com/new-2024-approved-uncharted-sci-fi-dimensions-top-10-metaverse-movie-experiences/"><u>[New] 2024 Approved  Uncharted Sci-Fi Dimensions  Top 10 Metaverse Movie Experiences</u></a></li>

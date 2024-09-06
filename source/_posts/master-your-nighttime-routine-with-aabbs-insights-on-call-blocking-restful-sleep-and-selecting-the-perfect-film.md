@@ -1,7 +1,7 @@
 ---
 title: Master Your Nighttime Routine with AABB's Insights on Call Blocking, Restful Sleep & Selecting the Perfect Film
-date: 2024-08-26T00:08:45.018Z
-updated: 2024-08-27T00:08:45.018Z
+date: 2024-09-05T11:27:44.976Z
+updated: 2024-09-06T11:27:44.976Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
@@ -11,6 +11,18 @@ thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## On Blocking Phone Numbers, Sleeping Tight, and Choosing a Movie
 
 May 21, 2018
@@ -29,6 +41,12 @@ Open the **Phone** app, go to **Recents**, and tap the information icon next to 
 
 ![iOS Block Unwanted Contacts phone number](https://static1.abbyy.com/abbyycommedia/26267/whatsapp-image-2018-05-21-at-135920-576x1024.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. **FaceTime**
 
 Repeat the first step but with FaceTime this time.
@@ -40,7 +58,10 @@ If you are in the **Messages** app, open the conversation, tap the information i
 When you block the phone number or contact, they will still be able to leave voicemails, but you won’t receive notifications. Messages that are sent or received won't be delivered. Also, the contact won’t be notified that their call or message was blocked.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Android Tip: Blocking Unwanted Contacts**
 
@@ -52,9 +73,6 @@ There are so many Android smartphones on the market that it will take ages to de
 
 ![Android Block Unwanted Contacts recent calls](https://static1.abbyy.com/abbyycommedia/26268/pppeee.png)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you are a Samsung user, proceed as follows:
 
 1. Open the **Phone** app.
@@ -63,21 +81,20 @@ If you are a Samsung user, proceed as follows:
 
 To delete the number from the black list, go to settings, select **Call settings**, and find the **Decline a call** section where this configuration is activated.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: BCR on Apple Watch**
 
 Did you know that your beloved [Business Card Reader](http://qrs.ly/iw4uqj5)is compatible with Apple Watch? You no longer need to take out your iPhone to check a business card of your colleague. Apple Watch BCR enables you to skim through your contacts and select the one you wish to call.
 
 ![ABBYY BCR on Apple Watch](https://static1.abbyy.com/abbyycommedia/26269/nnnnn.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Users may now add complications, or put simply, notifications on the main screen that display the last scanned business card or the total number of business cards stored. Tapping the complication will open [BCR](http://qrs.ly/iw4uqj5)right on Apple Watch. Apple’s operating systems feature data update algorithm that synchronizes data among devices—between iPhone and Apple Watch in this case. In order to successfully use [BCR](http://qrs.ly/iw4uqj5)on Apple Watch, simply install it on your iPhone and it will appear on your wearable automatically.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## **App of the Week: Twilight**
 
 It is common knowledge that looking at your smartphone far into the night is not that good for your health. Not only does your eyesight deteriorate from looking at the screen in the dark, such habit disturbs your sleeping schedule. But don’t worry, we’ve found an app that will help you stay healthy.
@@ -86,12 +103,27 @@ It is common knowledge that looking at your smartphone far into the night is not
 
 ![Application Twilight manage sleep control](https://static1.abbyy.com/abbyycommedia/26270/ggggggg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Twilight adjusts screen color by filtering the blue spectrum on your smartphone or tablet after the sun goes down and enables the red spectrum instead. Filter intensity smoothly adjusts based on solar cycle considering the time of the local sunrise and sunset.
 
 ![App Twilight parameters alarm sleeping](https://static1.abbyy.com/abbyycommedia/26271/shshshshshshsh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 App settings let users adjust the color temperature as well as filter intensity. The filter enables the red spectrum and blocks the blue spectrum, thus protecting your eyes from the harmful glow.
 
@@ -99,15 +131,24 @@ But this app notwithstanding, don’t forget that it is best not to use your dev
 
 Twilight is available only on [Android](https://play.google.com/store/apps/details?id=com.urbandroid.lux&hl=en).
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Ivan Shafran, Android developer_
 
 ![choose film movie abbyy advice](https://static1.abbyy.com/abbyycommedia/26272/ggggg.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 **How to pick up new skills**
 
 When studying a foreign language it is useful to write down every single new word you come across. It is pertinent to note that this simple approach can be employed to pick up basically any skill, but somehow it is still not used widely. If you start mastering new skills or learning new material, try writing down all tricky terms, tasks, procedures—whatever you might need in future—and come back to freshen up your memory. To gain a deeper understanding of a notion, make a plan or a scheme that will help you see the full picture. Such approach requires time and patience, but if you stick to it, it will eventually pay off.

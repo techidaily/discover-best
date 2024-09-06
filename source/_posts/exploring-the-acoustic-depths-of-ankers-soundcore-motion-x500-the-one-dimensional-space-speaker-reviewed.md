@@ -1,7 +1,7 @@
 ---
 title: Exploring the Acoustic Depths of Anker's SoundCore Motion X500 – The One-Dimensional Space Speaker Reviewed
-date: 2024-08-30T11:25:45.141Z
-updated: 2024-08-31T11:25:45.141Z
+date: 2024-09-05T11:27:41.194Z
+updated: 2024-09-06T11:27:41.194Z
 tags:
   - product-reviews
 categories:
@@ -21,6 +21,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
 ![motion x500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/cleanshot_2023-11-01_at_12-51-34_2x-removebg-preview.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Soundcore Motion X500
 
 7/ 10 
@@ -77,7 +83,10 @@ Tyler Hayes / How-To Geek
 ![Soundcore Motion X500 outside facing forward](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/soundcore-motion-x500-outside-facing-forward.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
@@ -104,14 +113,20 @@ Close
  Normally, a section would be dedicated to a device's mobile app. In this case, functions and features for the Motion X500 in the Soundcore app are minimal. The app is available for [iPhone](https://apps.apple.com/us/app/soundcore/id1331876603) and [Android](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2000903/https://play.google.com/store/apps/details?id=com.oceanwing.soundcore&hl=en%5FUS&gl=US) but only offers an EQ and a few customizable options for the light brightness of the buttons. (Everything is contained in two screens.) Beyond using it for firmware updates, the app might not even be worth downloading to use with this particular speaker.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Battery Life Is a Tentative Thumbs-Up
 
 ![Charging port on Soundcore Motion X500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/charging-port-on-soundcore-motion-x500.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
@@ -120,14 +135,26 @@ Tyler Hayes / How-To Geek
  The speaker charges via a rubber-seal-protected USB-C port and I had no problem with it, though its six-hour recharge time felt a little long. The problem I had with the device's battery was that there was no good way to tell how much listening time was left. The only power level was in the Soundcore app, but it didn't show a percentage, only a small icon that was not helpful.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Motion X500 Price and Availability
 
  The Soundcore Motion X500 retails for $169.99 (£169.99 in the U.K) but launched with a promotional price of $129.99\. If you want a step-up in audio performance, the [Motion X600](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x600-a3130011) has been selling for $199.99.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Should You Buy the Anker Soundcore Motion X500?
 
@@ -139,9 +166,6 @@ Tyler Hayes / How-To Geek
 
 ![motion x500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/cleanshot_2023-11-01_at_12-51-34_2x-removebg-preview.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Soundcore Motion X500
 
 7/ 10 

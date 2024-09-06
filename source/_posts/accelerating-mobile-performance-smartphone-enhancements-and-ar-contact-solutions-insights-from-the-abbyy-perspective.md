@@ -1,22 +1,52 @@
 ---
 title: "Accelerating Mobile Performance: Smartphone Enhancements & AR Contact Solutions | Insights From the ABBYY Perspective"
-date: 2024-08-26T00:09:02.040Z
-updated: 2024-08-27T00:09:02.040Z
+date: 2024-09-05T11:27:45.270Z
+updated: 2024-09-06T11:27:45.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accelerating Mobile Performance: Smartphone Enhancements & AR Contact Solutions | Insights From the ABBYY Perspective
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## On Speeding up Smartphones, AR Business Cards, and Developing Habits
 
 May 28, 2018
 
 ![](https://static4.abbyy.com/abbyycommedia/26273/mm35.png) 
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 We all need to stay active and productive. So do our gadgets. Today, we show how to give your phone a boost, provide some tips on developing useful habits, and scan a virtual business card. Get ready for some magic!
 
 **iOS Tip: Speeding up Your iPhone**
@@ -39,6 +69,12 @@ The device is still slow? Try **cleaning up cache in Safari**. The browser store
 
 ![device slow clear history website data](https://static1.abbyy.com/abbyycommedia/26276/4-300x300.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Would you care to make it even faster? Well, there’s only one option left then. The method of last resort here is to **restore a backup** that was made in the past—back when your device worked perfectly fast. If you do not remember how to restore the back up, consult with [one of our previous issues](https://tools.techidaily.com/abbyy/products/). If you are disinclined to read the whole article, here’s how you do it in brief: connect your iPhone to your laptop, launch iTunes, select the copy that you wish to restore, and install it back on your device.
 
 ## **Android Tip: Speeding up Your Android Device**
@@ -56,7 +92,10 @@ Constant **synchronization with services, background app refresh** — all of th
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
 
@@ -69,9 +108,6 @@ Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of cre
 
 Note that this feature is only available in iOS 11 for iPhone SE, 6s, and newer.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Loop**
 
 Do you promise yourself to start a new life on Monday but never actually do? Try [Loop](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en) — an app that helps to develop and maintain habits. Detailed diagrams and statistics show what habits have already been consolidated and what must still be worked on.
@@ -79,7 +115,10 @@ Do you promise yourself to start a new life on Monday but never actually do? Try
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
 
@@ -91,9 +130,6 @@ P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/p
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

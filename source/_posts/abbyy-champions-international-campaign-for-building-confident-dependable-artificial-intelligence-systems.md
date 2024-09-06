@@ -1,22 +1,40 @@
 ---
 title: ABBYY Champions International Campaign for Building Confident, Dependable Artificial Intelligence Systems
-date: 2024-08-26T00:08:58.839Z
-updated: 2024-08-27T00:08:58.839Z
+date: 2024-09-05T11:27:45.219Z
+updated: 2024-09-06T11:27:45.219Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e3fbcfe204dfbd52573599aedc96b853d77272f3befed715bed50ff29c06e5a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Champions International Campaign for Building Confident, Dependable Artificial Intelligence Systems
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Launches Global Initiative Promoting the Development of Trustworthy Artificial Intelligence
 
 June 09, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Growing Concerns about Digital Ethics and Use of Data for Machine Learning Models Call for Industry-Wide Transparency_
 
 ABBYY, a Digital Intelligence company, today launched a global initiative to promote the development of trustworthy artificial intelligence (AI) technology. As AI becomes ubiquitous across consumer and enterprise high-value and large-scale uses and more open source tools become available for digitizing data, the ethical use of accessing and training data is imperative.
@@ -74,9 +92,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-web.techidaily.com/024-approved-tips-on-how-to-edit-youtube-channel-description/"><u>[New] 2024 Approved  Tips on How to Edit YouTube Channel Description</u></a></li>

@@ -1,22 +1,46 @@
 ---
 title: Enhance Digital Footprint with Cookiebot Power Solutions
-date: 2024-08-26T00:09:17.455Z
-updated: 2024-08-27T00:09:17.455Z
+date: 2024-09-05T11:27:45.516Z
+updated: 2024-09-06T11:27:45.516Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ec6b1f1d7d998ce573dd315cc18c0246f2fda616f5f88137d905e138146bac2b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Digital Footprint with Cookiebot Power Solutions
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence : ABBYY signe une série de partenariats stratégiques
 
 24 septembre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Un an après [l’acquisition de TimelineP](https://tools.techidaily.com/abbyy/products/)I, ABBYY annonce la signature d’une vague de partenariats portée par l’appétence des entreprises pour l’innovation et la transformation digitale._
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) enregistre une dynamique d’adoption soutenue pour sa solution de Process Intelligence. ABBYY Timeline est la seule plateforme combinant des technologies de Content Intelligence et de Process Intelligence permettant aux entreprises de matérialiser leurs processus au sein d’une cartographie visuelle et de générer des analyses prédictives visant à faciliter la prise de décisions éclairées. Ce faisant, les entreprises peuvent anticiper des problématiques potentielles avant qu’elles n’affectent leur développement.
@@ -69,9 +93,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-tackling-live-broadcasts-the-intersection-of-obs-and-zoom/"><u>[New] 2024 Approved  Tackling Live Broadcasts  The Intersection of OBS and Zoom</u></a></li>

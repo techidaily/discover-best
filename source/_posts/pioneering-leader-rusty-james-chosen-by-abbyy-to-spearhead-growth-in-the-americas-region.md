@@ -1,22 +1,40 @@
 ---
 title: Pioneering Leader Rusty James Chosen by ABBYY to Spearhead Growth in the Americas Region
-date: 2024-08-26T00:07:11.837Z
-updated: 2024-08-27T00:07:11.837Z
+date: 2024-09-05T11:27:43.298Z
+updated: 2024-09-06T11:27:43.298Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50da58587d7473ccea973193c5c4bacc32476fa35b560a9912e15b1167ea0299.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Pioneering Leader Rusty James Chosen by ABBYY to Spearhead Growth in the Americas Region
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Selects Rusty James to Lead Partner Growth throughout North America
 
 December 12, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Success with channel partners a major contributor to ABBYY’s exceptional growth_
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a global provider of content intelligent solutions and services, today announced Rusty James has joined the company as the new Head of Partner Business for North America. He will be driving the development and execution of channel partnerships among value-added resellers (VARs), system integrators and independent software vendors (ISVs) to expand the use of ABBYY’s solutions throughout Canada, Mexico and the US.
@@ -54,9 +72,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-visual-storytelling-on-instagram-with-loops/"><u>[New] In 2024, Enhancing Visual Storytelling on Instagram With Loops</u></a></li>

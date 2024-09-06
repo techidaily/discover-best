@@ -1,22 +1,40 @@
 ---
 title: "Groundbreaking Collaboration: ABBYY + Blue Prism Introduce Advanced Automation Technologies"
-date: 2024-08-26T00:07:56.013Z
-updated: 2024-08-27T00:07:56.013Z
+date: 2024-09-05T11:27:44.035Z
+updated: 2024-09-06T11:27:44.035Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/62c8ecc88aff429d62093b18bad06f55833353ec78e34142ed3c3e52ff3fe5e7.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Groundbreaking Collaboration: ABBYY + Blue Prism Introduce Advanced Automation Technologies
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Partners with Blue Prism to Jointly Offer Transformative Automation Capabilities
 
 November 13, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY showcases content intelligence solutions from the Blue Prism Digital Exchange_
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY®, a leading provider of content intelligence solutions and services, today announced it is jointly offering content intelligence solutions with the recently debuted Blue Prism Digital Exchange, a robust Intelligent Automation (IA) “app store” for accessing and downloading pre-built artificial intelligence (AI), cognitive and disruptive technologies.
@@ -65,10 +83,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://twitter-videos.techidaily.com/new-2024-approved-transform-your-twitter-usage-best-unfollower-tools-reviewed/"><u>[New] 2024 Approved  Transform Your Twitter Usage  Best Unfollower Tools Reviewed</u></a></li>

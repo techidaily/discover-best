@@ -1,16 +1,28 @@
 ---
 title: "Cookiebot: Revolutionizing Personalization and Retargeting in Web Marketing"
-date: 2024-08-26T00:09:11.138Z
-updated: 2024-08-27T00:09:11.138Z
+date: 2024-09-05T11:27:45.424Z
+updated: 2024-09-06T11:27:45.424Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: Revolutionizing Personalization and Retargeting in Web Marketing
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## “What the Hell Is a Map Book!?”- and what does it have to do with the rise of Process Intelligence?
 
 ###### Joe Rayfield
@@ -19,6 +31,12 @@ August 08, 2019
 
 ![What is a map book and how is it related to process intelligence? | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25366/10809_smm_blog_what-the-hell-is-a-map-bookblog.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Digital technologies are evolving at a furious pace and our business strategies are lagging behind. We need a new approach to processes for the digital age._**
 
 Recently in a discussion with my wife, I attempted to explain why ABBYY acquired TimelinePI – and I somehow ended up telling a long and elaborate story about how I was the best map book reader in my family. I regaled her with my stories of travelling all around the south of England trying to find multiple football (or soccer as my US friends and colleagues call it) grounds with my Dad in our Volvo Estate, continuously getting thwarted by traffic, roadworks, and getting lost through out-of-date map books.
@@ -47,8 +65,20 @@ With the risk of sounding like a scratched record, throw away the “map books�
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Joe Rayfield
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -112,9 +142,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-videos.techidaily.com/new-2024-approved-tailor-your-fb-theme-with-footage/"><u>[New] 2024 Approved  Tailor Your FB Theme with Footage</u></a></li>

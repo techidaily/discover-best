@@ -1,16 +1,28 @@
 ---
 title: "ABBYY GlobalIDP: Entwicklungen Und Erkenntnisse in Der Jahresanalyse"
-date: 2024-08-26T00:07:22.503Z
-updated: 2024-08-27T00:07:22.503Z
+date: 2024-09-05T11:27:43.460Z
+updated: 2024-09-06T11:27:43.460Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1dec50e97267f5b7542797ed.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY GlobalIDP: Entwicklungen Und Erkenntnisse in Der Jahresanalyse
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY veröffentlicht globalen Bericht über Trends und Ergebnisse der intelligenten Dokumentenverarbeitung
 
 6\. Juni 2023
@@ -19,6 +31,12 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
 
 ![News Colleagues2](https://static1.abbyy.com/abbyycommedia/33744/news-colleagues2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY hat heute den Intelligent Document Processing (IDP) Global Trends & Outcomes Report veröffentlicht, der die Herausforderungen und Chancen für intelligente Automatisierungsinitiativen in Unternehmen aufzeigt. Der Bericht liefert Innovationsführern wichtige Erkenntnisse darüber, wie Unternehmen dokumentenzentrierte Prozesse optimieren, um operative Exzellenz zu erreichen, das Kundenerlebnis zu verbessern und den Geschäftswert zu steigern.
 
 Als Marktführer im Bereich IDP, der von zehn unabhängigen Analystenfirmen anerkannt wird, und mit drei Jahrzehnten Erfahrung in der digitalen Umwandlung von Milliarden Dokumenten, um verwertbare Erkenntnisse für mehr als 10.000 Kunden zu gewinnen, liefern die internen Daten des Unternehmens interessante Erkenntnisse über globale Trends.
@@ -50,6 +68,12 @@ Trotz ihrer unterschiedlichen Prioritäten konzentrieren sich alle drei Regionen
 
 ![](https://static1.abbyy.com/abbyycommedia/37318/idp-trendsoutcomes-infographic-may-2023-de.jpg?width=950&height=593)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Unternehmen in allen Regionen hatten ähnliche Prioritäten, um ihre intelligenten Automatisierungsplattformen mit Konnektoren zu fortschrittlicheren IDP-Funktionen zu erweitern, die eine höhere Genauigkeit beim Lesen, Extrahieren und Klassifizieren unstrukturierter und halbstrukturierter Daten bieten. Die Verbindung von High-End-IDP-Lösungen mit ihren bestehenden Plattformen ermöglicht es den Unternehmen, ihre Technologieinvestitionen kosteneffizient zu skalieren. ABBYY-Daten zufolge werden die häufigsten Konnektoren für die folgenden Plattformen angefordert:
 
 * Microsoft Power Automate
@@ -74,14 +98,26 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

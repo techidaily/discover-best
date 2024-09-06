@@ -1,7 +1,7 @@
 ---
 title: "Celebrating the International Family Day: Achieving Harmony Between Career and Personal Time with ABBYY"
-date: 2024-08-26T00:06:38.171Z
-updated: 2024-08-27T00:06:38.171Z
+date: 2024-09-05T11:27:42.759Z
+updated: 2024-09-06T11:27:42.759Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a44de758792af2fb67431bc0cd10b70e0176e5a8a3e2c53a5711bc4054272247.jpg
@@ -25,6 +25,12 @@ From stories of siblings and partners working together to colleagues discovering
 
 ![anastasiia-anna-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/anastasiia-anna-600x600.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 First up, we're going to our Ukrainian office where we find sisters **Anastasiia and Anna**: 
 
 "Talking about this feels like uncovering a big secret," says Anastsiia, our US Fulfilment Team Lead, "I have a baby sister working with me at ABBYY!" 
@@ -54,7 +60,10 @@ I have a constant source of support and someone to bounce ideas off.
 Anna, Customer Service Expert
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ryan
 
@@ -70,10 +79,22 @@ For me to respond with good energy, it is key that I prioritize maintaining a go
 
 Ryan, Senior Solution Consultant
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Steve
 
 ![steve-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/steve-600x600.png)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Steve**, our Head of Talent Acquisition based in the US, shares Ryan's view that once you become a parent, striking the perfect work-life balance takes center stage.
 
 “For me, work-life balance has always been a priority. Since becoming a parent, however, it has become both more important and a challenge to balance the two. One thing that has become abundantly clear to me is how fast time goes by once you’re a parent, which has really put things into perspective in terms of what matters most when prioritizing one’s time. After having my first child, I found myself seeking greater flexibility in my career to accommodate these new responsibilities. Working remotely allows that flexibility to not only have more time but also allows you to choose how that time is spent. It has been a game changer for me and my family in the best of ways.
@@ -85,18 +106,21 @@ After having my first child, I found myself seeking greater flexibility in my ca
 Steve, Head of Talent Acquisition
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Aleksandar
 
 ![aleksandar-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/aleksandar-600x600.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 "At first, I thought that becoming a parent will maybe have, so to say, a negative impact on my work and career," confessed **Aleksandar** from our Finance team in Serbia who has recently joined ABBYY after becoming a father. 
 
 "In my case, children were the biggest motivation and one of the main reasons that led me to make a change in my professional career and find a role outside of the industry I was working in. They were also the main reason to get out of my comfort zone and, to seek new opportunities and challenges.
@@ -107,21 +131,10 @@ Initially, my biggest concern was how to organize my time and find a balance bet
 
 Aleksander, Order Fulfillment Specialist
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Konstantin and Ekaterina
 
 ![konstantin-ekaterina-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/konstantin-ekaterina-600x600.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In our Cyprus Research Development (R&D) and Product Development teams, we found **Konstantin** and **Ekaterina** who shared a bit about their experience working as a married couple with children at ABBYY:
 
 “Truth be told, ABBYY isn't our first rodeo together. We hustled as waiters back in our student days, then rocked it out at another IT joint.
@@ -137,16 +150,15 @@ Yeah, we chat about work at home sometimes, but we make sure to switch it off, t
 Konstantin and Ekaterina, R&D and Product Development
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Rahul
 
 ![rahul-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/rahul-600x600.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 When asked about how working remotely impacted his family dynamics compared to working in a traditional office setting, **Rahul**, Partner Innovation and Enablement Consultant, who you might remember from our [heartwarming Valentine's Day story](https://www.linkedin.com/posts/abbyy%5Flifeatabbyy-abbyy-valentinesday-activity-7163133907616395264-uMgS), told us that flexible working arrangements have been a game-changer for his family.
 
 "The big win? No more commuting. This means we get more time together as a family—time we can spend on fun activities, sharing meals, or just being there for each other.," he told us.

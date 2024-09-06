@@ -1,22 +1,40 @@
 ---
 title: "Advancing American Public Health: How ABBYY Powers FDA's Objectives"
-date: 2024-08-26T00:07:24.648Z
-updated: 2024-08-27T00:07:24.648Z
+date: 2024-09-05T11:27:43.490Z
+updated: 2024-09-06T11:27:43.490Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/41d26f14bdf26696cf95984fdfd711f6541c07a00007a689ba883cae0cffeaf7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Advancing American Public Health: How ABBYY Powers FDA's Objectives
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Accelerates U.S. Food and Drug Administration’s Public Health Initiatives
 
 October 20, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/) announced today that the U.S. Food and Drug Administration (FDA) is using its [Digital Intelligence platform](https://tools.techidaily.com/abbyy/products/) to accelerate its public health initiatives. ABBYY solutions digitize and process data within documents used for monitoring public health, including the government agency’s 30-year archive of forms used to report adverse events and current documents to ensure that critical reporting is captured accurately and quickly.
 
 "Going forward, we plan to use ABBYY to process newly received health reports and utilize the data in our downstream enterprise workflow and visualization software,” stated **Justin Scott, Senior Business Informatics Officer, Office of Business Informatics, U.S. FDA**. "ABBYY has brought us into the 21st century."
@@ -62,9 +80,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://instagram-clips.techidaily.com/new-2024-approved-captivating-creations-the-process-of-making-popular-video-memes/"><u>[New] 2024 Approved  Captivating Creations  The Process of Making Popular Video Memes</u></a></li>

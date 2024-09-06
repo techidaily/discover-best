@@ -1,7 +1,7 @@
 ---
 title: "Enhanced User Experience with Automated Consent Management: Powered by Cookiebot"
-date: 2024-08-26T00:09:27.148Z
-updated: 2024-08-27T00:09:27.148Z
+date: 2024-09-05T11:27:45.661Z
+updated: 2024-09-06T11:27:45.661Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/503d593f9428317b9217e37989fa613e5c3305adb6e8017e4b8755b0efa649e5.png
@@ -23,6 +23,12 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 Talking over the phone is a classic no doubt but still way too old-fashioned! Innovative technologies today allow you to talk face to face using your smartphone. Also today: recognizing documents for free, storing digital content, and fighting procrastination.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iOS Tip: How to Use FaceTime
 
 What is [FaceTime](https://en.wikipedia.org/wiki/FaceTime)? Like [Skype](https://www.skype.com/), it’s an app and service that allows you to make video calls on iOS devices. Your calls can be routed though Wi-Fi, 3G or 4G networks. For video, [FaceTime](https://en.wikipedia.org/wiki/FaceTime) uses the front camera of your mobile device. You can have up to four people participating in a video call and up to nine people if you use only audio. [FaceTime](https://en.wikipedia.org/wiki/FaceTime) is supported on all of the Apple devices— iPhones, iPads, and Mac computers.
@@ -47,8 +53,20 @@ You see that voice calls in [FaceTime](https://en.wikipedia.org/wiki/FaceTime) a
 
 ![application FaceTime functions iPhone](https://static1.abbyy.com/abbyycommedia/26081/ios11-iphone7-facetime-audio-call-waiting-2-e1509907613156.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There’s not much else we could tell you about [FaceTime](https://en.wikipedia.org/wiki/FaceTime) apart from thanking modern technology for giving us the ability to see and speak to our near and dear who may be thousands of miles away.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Android Tip: How to Use Hangouts
 
 [Hangouts](https://hangouts.google.com/?hl=mn) is a versatile communication tool that supports phone and video calls, instant messages, and SMS. There’s a plethora of messaging apps out there, and [Hangouts](https://hangouts.google.com/?hl=mn) is Google’s attempt to bring some method into this madness.
@@ -56,7 +74,10 @@ There’s not much else we could tell you about [FaceTime](https://en.wikipedia.
 ![Android Hangouts usage on smartphone](https://static1.abbyy.com/abbyycommedia/26082/hangouts-22-for-ios-android-screenshots-e1509907672263.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 To start using [Hangouts](https://hangouts.google.com/?hl=mn), complete these two simple steps
 
@@ -65,8 +86,26 @@ To start using [Hangouts](https://hangouts.google.com/?hl=mn), complete these tw
 
 ![Hangouts app start new conversation](https://static1.abbyy.com/abbyycommedia/26083/start_chrome_app-e1513599273473.png)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 You will see a list of your contacts, some of whom will already have [Hangouts](https://hangouts.google.com/?hl=mn) installed. You can also invite new users. Like [FaceTime](https://en.wikipedia.org/wiki/FaceTime), [Hangouts](https://hangouts.google.com/?hl=mn) can be used both on mobile devices and on desktop or laptop computers.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Tip: How to Use the OCR Feature in FineScanner for Free
 
 This is one of the most popular questions we receive. We have no secrets from our readers, so here’s the instructions.
@@ -79,7 +118,16 @@ Once you’ve installed [FineScanner](http://qrs.ly/3f56xfu) on your iOS or Andr
 That’s it! By following the steps above, you can use [FineScanner](http://qrs.ly/3f56xfu) 5 times + 7 days absolutely free. Hope you like the app. Please leave your feedback in the app stores so we could make [FineScanner](http://qrs.ly/3f56xfu)even more useful.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## App of the Week: Pocket
 
@@ -87,9 +135,6 @@ That’s it! By following the steps above, you can use [FineScanner](http://qrs.
 
 ![pocket app save to watch (read) later](https://static1.abbyy.com/abbyycommedia/26084/pocket_ipad_screenshots_grid-view-e1509908265271.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Many apps integrate with [Pocket](https://getpocket.com/), so you can easily add texts from Feedly or Twitter. Here’s how you do it:
 
 1. Using a browser extension. There’s a browser extension for Chrome, which lets you [Pocket](https://getpocket.com/) any story you find on the Web. In other browsers, you can use a bookmarklet.
@@ -100,15 +145,15 @@ Content saved to [Pocket](https://getpocket.com/) can be tagged, archived, and s
 
 ![Pocket Application Archive mark tags](https://static1.abbyy.com/abbyycommedia/26085/19061236-pocket2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [Pocket](https://getpocket.com/) is an excellent service for all those who need to save video, images, texts, and other content in one place.
 
 Available on [iOS](https://itunes.apple.com/app/read-it-later-pro/id309601447?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.ideashower.readitlater.pro).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -116,15 +161,18 @@ _Shared by Maria Rodionova, testing engineer_
 
 ![abbyy advice from colleague pomodoro technique](https://static1.abbyy.com/abbyycommedia/26086/ha-n3g6i-jo-e1509908611104.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Hi,
 
 Here’s a life hack for Monday bouts of procrastination. It’s officially called the Pomodoro technique and was invented by Francesco Cirillo. Below you can see a picture of a time piece similar to the one used by Cirillo:
 
 ![pomodoro technique against procrastination advice](https://static1.abbyy.com/abbyycommedia/26087/762dfd30f91bb760c6eacf38818f6f5d-e1509908677143.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 It’s a simple kitchen timer in the shape of a tomato (hence the Italian name of the technique). The method itself is a no brainer: set the timer to 25 minutes and continue working on your task until the timer rings. Twenty-five minutes is not that much, is it? Then take a short break (say, 5 minutes) and do another 25-minute stint. After three pomodoros you are entitled to a bigger break of 25-30 minutes.
 
 When you actually start timing yourself, the method might prove harder to follow than it looks on paper, but don’t despair. Try again, and your next pomodoro will most likely be 25 minutes of honest work.
@@ -133,6 +181,18 @@ That’s all for today, guys. See you next Monday! P.S. You can find the previou
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

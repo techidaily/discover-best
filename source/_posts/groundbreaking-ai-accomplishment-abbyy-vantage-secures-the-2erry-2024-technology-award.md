@@ -1,16 +1,28 @@
 ---
 title: "Groundbreaking AI Accomplishment: ABBYY Vantage Secures the 2Erry 2024 Technology Award"
-date: 2024-08-26T00:07:54.968Z
-updated: 2024-08-27T00:07:54.968Z
+date: 2024-09-05T11:27:44.020Z
+updated: 2024-09-06T11:27:44.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0817e17832f9eb6eaafa089134585eb7da7e6eb5282db756bf22aa798c8924ed.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Groundbreaking AI Accomplishment: ABBYY Vantage Secures the 2Erry 2024 Technology Award
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Vantage Wins “Best Intelligent Document Processing Solution” in 7th Annual AI Breakthrough Awards
 
 ###### Slavena Hristova
@@ -25,6 +37,12 @@ Today, we’re proud to announce that this innovation in IDP has earned ABBYY Va
 
 ![ai-breakthrough-award-badge-2024-474x444](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-vantage-wins-ai-breakthrough-awards/ai-breakthrough-award-badge-2024-474x444.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The pre-trained AI models within Vantage (also known as skills) use advanced natural language processing (NLP), optical character recognition (OCR), large language models (LLMs) and machine learning to extract and understand data within documents like humans. Through these capabilities, enterprises can efficiently and autonomously process any type of document for any business process, or use case, regardless of language or complexity, extracting and processing vital data to [achieve 95% automation out of the box](https://tools.techidaily.com/abbyy/products/). 
 
 ABBYY’s award-winning, purpose-built approach to AI and IDP is epitomized by its pre-trained AI models that extract business-critical data from certain document types (e.g. payslips, tax forms, insurance claims, identity documents, invoices, purchase orders, receipts, bills of lading, etc.) right out of the box. These purpose-built skills can be adjusted according to specific requirements and continuously uptrained based on customers’ documents and input from human-in-the-loop verification. A wide variety of skills are available on the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), enhancing Vantage and enabling it to integrate seamlessly with third-party platforms for ERP, BPM and other business systems.
@@ -47,6 +65,18 @@ Being named ‘Best Intelligent Document Processing Solution’ by AI Breakthrou
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY
@@ -114,9 +144,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vp-tips.techidaily.com/new-highlights-of-snowboard-cross-olympics-2022/"><u>[New] Highlights of Snowboard Cross Olympics 2022</u></a></li>

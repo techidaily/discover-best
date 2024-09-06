@@ -1,16 +1,28 @@
 ---
 title: "Unleash Precision Marketing: Harness the Power of Cookiebot Technology"
-date: 2024-08-26T00:08:55.621Z
-updated: 2024-08-27T00:08:55.621Z
+date: 2024-09-05T11:27:45.172Z
+updated: 2024-09-06T11:27:45.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157eaf7507ac4a1589610732acc.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unleash Precision Marketing: Harness the Power of Cookiebot Technology
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY、顧客のオンボーディングプロセスに関するグローバル調査を実施
 
 11月24日, 2022
@@ -19,6 +31,12 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 
 ![News Colleagues3](https://static1.abbyy.com/abbyycommedia/33750/news-colleagues3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **～離脱率改善が新規顧客獲得における課題であると判明する一方、** 
 **日本企業のテクノロジー導入遅れが鮮明化～** 
 
@@ -34,6 +52,12 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 5. 離脱率が減少したとしても、ビジネス上の改善・向上を想定するのではなく、現状維持・変化しないと考える企業が、日本は世界の約3倍
 6. 顧客の離脱による影響として、日本企業の半数以上は新規顧客の獲得に苦しんでいる
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ▼調査目的
 
 [米国連邦取引委員会](https://www.ftc.gov/reports/consumer-sentinel-network-data-book-2021)のレポートによると、個人情報の盗難やなりすまし詐欺などの詐欺行為によって2021年に280万人以上の消費者が59億ドルの損害を受けたという報告があり、これは2020年の被害額よりも70%以上増加しています。個人間でも企業間においても、オンライン取引は世界中で増加している昨今、オンラインでのなりすましや詐欺、個人情報の盗難防止策は喫緊の課題となっています。  
@@ -41,13 +65,28 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 これらの外部環境の変化を受け、ABBYYは、顧客のオンボーディングプロセスおよび顧客のプロセス離脱対策としてどの程度テクノロジーを導入しているかを調査することで、日本と世界の企業による顧客のオンボーディングプロセスへの取り組みや意識の差を明らかにしました。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ▼調査方法
 
 本調査は、英国、米国、フランス、ドイツ、日本のIT意思決定者1,623人（日本：200人）を対象に、2022年9月に実施したオンライン調査です。新規顧客の獲得および顧客の離脱に対して、どの様に企業がテクノロジーを活用しているかを尋ねました。対象者の業界、役割の上位3種は以下の通りです  
 ![](https://static1.abbyy.com/abbyycommedia/36334/2022-11-24_onboarding_survey_jp-table.png)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ▼グローバル調査結果トピックスの詳細
 
 1. 「カスタマーエクスペリエンス、およびカスタマージャーニーにおいて、顧客のオンボーディングプロセスはどれくらい重要だと思いますか？」という質問に対して、世界平均(\*2)の59%が「とても重要」「必要不可欠」と回答、一方日本は27%と回答。顧客のオンボーディングプロセスに対する認識の差が顕著であることがわかりました。  
@@ -55,34 +94,25 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 ![](https://static1.abbyy.com/abbyycommedia/36329/2022-11-24_onboarding_survey_jp-image-1.png?width=800&height=344)
 2. 「顧客のオンボーディングプロセスをどれくらい自動／人手で行っていますか？」という質問に対して、「50%以上は自動化している」と回答した割合が世界平均では82%であり、顧客のオンボーディングプロセスのデジタルシフトが進んでいることが分かります。その反面、日本は49%が「75%以上は人手で行っている」と回答しており、業務のデジタル化が遅れていることが明らかになりました。  
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.abbyy.com/abbyycommedia/36330/2022-11-24_onboarding_survey_jp-image-2.png?width=801&height=335)
 3. 「顧客のオンボーディングプロセスに変更を加えたことがありますか？」という質問に対して、世界平均の96%は何らかのテクノロジーを活用したオンボーディングを行っていますが、日本は67%に留まり、大きく後進していることがわかりました。「当てはまらない」に関しては、日本が27%で世界平均の3%を大きく上回っており、日本の企業は顧客のオンボーディングプロセスを変えていない、つまりより改善する取り組みを行っていない可能性が高いことが明らかになりました。また、全体として少数ではあるものの、完全に人手での対応に変更した企業も8%と世界平均の2倍以上の数字となっており、日本企業はいまだテクノロジーではなく人手に頼る傾向が世界平均より強いといえます。  
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.abbyy.com/abbyycommedia/36331/2022-11-24_onboarding_survey_jp-image-3.png?width=800&height=447)
 4. 「顧客のオンボーディングプロセス中での離脱率は何%ですか？」という質問に対して、「わからない」「該当なし」と回答した企業が世界平均は4%でしたが、日本は26%と顧客の離脱率に対する意識が日本は低い傾向があることがわかりました。  
 ![](https://static1.abbyy.com/abbyycommedia/36332/2022-11-24_onboarding_survey_jp-image-4.png?width=800&height=362)
 5. 「もし顧客の離脱率が50%下がった場合」に関する質問で、「何もしない／変化なし」と回答した数が日本企業は世界平均の約3倍でした。各質問での割合は、「収益が何%増加すると思いますか？（世界平均：6%、日本：21%）」「追加のサービスを何%増やしますか？（世界平均：6%、日本：17%）」「顧客開拓が何%増えると思いますか？（世界平均：5%、日本：18%）」「人材の為の対応を何％増やしますか？（世界平均：7%、日本：21%）」であり、現状維持を望む傾向が強いといえます。
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 6. 「昨年、顧客の離脱によりどの様なビジネス上の結果／余波がありましたか？」という質問に対して、「新規顧客獲得に苦しんだ」と回答した企業が世界平均の28%に対して日本では半数を超えており、日本企業が特に悩みを抱えている部分であり、喫緊の課題であることがわかりました。  
 ![](https://static1.abbyy.com/abbyycommedia/36333/2022-11-24_onboarding_survey_jp-image-5.png?width=800&height=375)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ▼ABBYYグループCEO/取締役 ウルフ・パーソンのコメント
 
@@ -93,7 +123,10 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 「日本の企業は、IT部門とビジネス部門が更に協力体制を強める必要があると思います。日本では、IT担当者が新規顧客の獲得に関わっていないケースもしばしばお見受けしますが、現代のローコード・プラットフォームを活用して、IT担当者がビジネスの目標達成をサポートすることは非常に重要になってきていると感じます。顧客の本人確認手続きのデジタル化などは、ITがビジネスを改善していくまず最初の重要なステップではないかと考えます。」
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYYについて
 

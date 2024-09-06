@@ -1,7 +1,7 @@
 ---
 title: "Affordable & Sustainable: In-Depth Review of Skullcandy's $40 Eco Buds and Acoustic Performance"
-date: 2024-08-30T11:25:40.411Z
-updated: 2024-08-31T11:25:40.411Z
+date: 2024-09-05T11:27:41.117Z
+updated: 2024-09-06T11:27:41.117Z
 tags:
   - product-reviews
 categories:
@@ -21,8 +21,26 @@ thumbnail: https://thmb.techidaily.com/57fc80a0532998e9a3fa34c3a10aaf11a38c8a257
 
 ![Skullcandy EcoBuds product shot](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/skullcandyecobudsproduct.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/htg-staff-pick-1.png) 
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Skullcandy Ecobuds
 
 7/ 10 
@@ -44,6 +62,18 @@ Skullcandy EcoBuds were designed to reduce our impact at every stage of the proc
 
 [_How We Test and Review Products_](https://vp-tips.techidaily.com/swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Price and Availability
 
  The EcoBuds retail for $39.99\. They are available now on the Skullcandy website and at other major retailers.
@@ -96,6 +126,12 @@ Skullcandy EcoBuds were designed to reduce our impact at every stage of the proc
 
 Expand 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  What Makes Skullcandy EcoBuds So Eco-Friendly?
 
  These earbuds were designed with 65% certified recycled plastic and 57% less heavy metal compared to most standard earbuds on the market. This means that Skullcandy EcoBuds are produced with fewer wasteful materials and have a smaller carbon footprint.
@@ -104,13 +140,16 @@ Expand
 
 ![Photo of the Skullcandy Ecobuds being charged via USB port on a mobile device.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/the-skullcandy-ecobuds-activated-by-being-charged_53573501264_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  The minimalist case design does not have a cover, which may make you think twice about tossing it into your bag. The earbuds are held in the case with magnets, so they aren’t at risk of falling out, but the case won’t keep your earbuds clean from dust and whatever else they might encounter when they’re being stored.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Eco-Friendly Is Great, But How Does It Sound?
 
  In terms of audio quality, the Skullcandy EcoBuds were on par with other earbuds at this lower price point; not too impressive, but certainly acceptable. The sound is vibrant, but the lows were a lot richer than the higher register notes. The bass can be emphasized even more with the EQ modes available on the EcoBuds. Phone calls and sound from various apps had consistent and clear quality.
@@ -121,18 +160,12 @@ Jerome Thomas / How-To Geek
 
 Jerome Thomas / How-To Geek
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  There’s No Software, Which Can Be Good or Bad
 
  Depending on how you’re accustomed to using your earbuds, a lack of software could be a good or bad thing. On the plus side, there’s one less app to download and manage on your phone. But that also means there’s no app to help you find a missing earbud, track battery life, or make adjustments to the settings.
 
  The Skullcandy EcoBuds do offer a bit of sound customization, however. Using simple touch controls, there are three preset listening modes that you can rotate through: Music, Bass Boost, and Podcast. However, the Bass Boost seems to be merely lowering the volume of the treble in the EQ, which isn’t the same thing. The Music and Podcast modes sounded extremely similar to me, so I used the Music mode 90% of the time.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  8 Hours of Listening on One Charge
 
  While the charging process of the Skullcandy EcoBuds might be a little different with its USB-C cord siphoning energy from your phone’s battery, it’s not a huge sacrifice. If you only charge the EcoBuds for 10 minutes, you’ll have 2 hours of listening time.
@@ -144,7 +177,10 @@ Jerome Thomas / How-To Geek
  With a full charge, the EcoBuds should last for a solid 8 hours. I charged the earbuds to 100% and was able to use them sporadically for 5 days without needing to recharge. The earbuds also do a good job of retaining that charge even if they’ve been sitting around unused for a day or two, which makes them a great option for your gym bag. Not all earbuds are great for workouts, so check out this [list of earbuds for running](https://facebook-video-recording.techidaily.com/new-insiders-look-at-streaming-content-on-social-media-platforms-for-2024/) if you're looking for the best options for you.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Should You Buy the Skullcandy EcoBuds?
 
@@ -155,13 +191,13 @@ Jerome Thomas / How-To Geek
 ![Skullcandy EcoBuds product shot](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/skullcandyecobudsproduct.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/htg-staff-pick-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 #####  Skullcandy Ecobuds
 
 7/ 10 

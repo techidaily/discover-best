@@ -1,12 +1,18 @@
 ---
 title: Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog
-date: 2024-08-26T00:07:23.601Z
-updated: 2024-08-27T00:07:23.601Z
+date: 2024-09-05T11:27:43.477Z
+updated: 2024-09-06T11:27:43.477Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e9f2de3fe739ce800e08e572da8b622265103b19b637342a76d71b38cffa3022.JPG
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ August 24, 2017
 
 ![Mobile-driven expense management as an accelerator for finance process automation | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25224/8648e_блог-и-smm_кадрирование-для-блога-24-августаblog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Automation is fast becoming a buzzword especially among knowledge workers who strive to minimize the need for manual labor in the accounts payable departments. It is easy to see why. Whether in large companies or in small companies and startups, expenses are an annoyance for both employers and employees.
 
 Today, up to 46 percent of businesses still depend on manual tools to manage expenses, according to T&E firm Certify. Among small businesses, that figure has risen to as high as 64 percent, seeming to confirm that the smaller the business, the greater the dependence on manual tools to manage expenses.
@@ -36,6 +48,12 @@ Mobile-driven expense management offers numerous advantages including:
 * Niche performance - provides easy-to-access platform for companies to process, manage and control expenses in hybrid clouds, custom services and expense management systems
 * Increased performance - more productivity, effortless collaboration, streamlined approval system, automated data transfer to EMS.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Technical Challenges
 
 Despite the obvious advantages offered mobile-driven expense management, some inconvenience is still experienced when using the technology. The first problem is that developing receipt processing technology is anything but simple. Some common challenges that have hampered previous efforts include;
@@ -52,6 +70,12 @@ _By Jonathan Darbey_
 
 [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Finance & Accounting](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -115,9 +139,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vp-tips.techidaily.com/new-2024-approved-unboxing-the-typhoon-h-yuneecs-drone-expertise/"><u>[New] 2024 Approved  Unboxing the Typhoon H  Yuneec's Drone Expertise</u></a></li>

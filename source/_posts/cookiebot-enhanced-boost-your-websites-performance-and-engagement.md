@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Website's Performance and Engagement"
-date: 2024-08-26T00:09:08.935Z
-updated: 2024-08-27T00:09:08.935Z
+date: 2024-09-05T11:27:45.389Z
+updated: 2024-09-06T11:27:45.389Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3eac0a2d615e95926075c7419.jpg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3e
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Qu’est-ce que la Process Intelligence ?
 
 ###### Scott Opitz
@@ -29,12 +35,27 @@ Passer à :
 [Associer la process intelligence à l’IPA](https://tools.techidaily.com/abbyy/products/)  
 [Foire aux questions](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Qu’est-ce que la Process Intelligence ?
 
 **La Process intelligence est une combinaison de fonctionnalités reposant sur les données, dédiée à l’analyse et à l’amélioration des opérations de l’entreprise.** Elle utilise les données tirées des propres systèmes d’information de l’entreprise pour dévoiler des schémas et des renseignements qui indiquent la voie vers une nouvelle efficacité opérationnelle. **Les cinq piliers essentiels d’une process intelligence soutenable sont la découverte des processus (process discovery), l’analyse des processus (process analysis), le suivi des processus (process monitoring), la prédiction des résultats des processus (process prediction), et la simulation des processus (process simulation).**  Les entreprises peuvent utiliser ces renseignements pour découvrir, comprendre et gérer plus efficacement l’exécution de leurs processus.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Les cinq piliers de la process intelligence
 
@@ -61,7 +82,10 @@ La Process prediction utilise les schémas historiques d’exécution pour entra
 La Process simulation fournit un mécanisme permettant d’utiliser l’historique des processus afin de configurer automatiquement une simulation. Ce modèle peut ensuite être ajusté pour voir quel impact aura un changement proposé sur un processus ou l’allocation d’une ressource, l’objectif étant de comprendre l’impact de ces changements avant qu’ils ne soient mis en œuvre. Par exemple, une banque peut utiliser cette approche pour comprendre l’impact d’une modification des effectifs sur le département d’approbation des prêts. Cela aide les dirigeants à prendre des décisions informées sur l’allocation des ressources et les modifications de processus, ce qui se traduit finalement par une efficacité opérationnelle et une satisfaction des clients optimisées.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Quels sont les avantages de la process intelligence ? 
 
@@ -83,16 +107,10 @@ En tirant le meilleur parti de la process intelligence, les entreprises peuvent 
 
 Dans tout secteur d’activité, incorporer la [process intelligence à la stratégie de transformation numérique](https://tools.techidaily.com/abbyy/products/) permet aux organisations d’évaluer le futur impact des changements proposés, de gérer les transitions plus efficacement, de garantir la performance des étapes d’automatisation mises en place et de mettre en place une boucle de rétroaction pour une amélioration continue. Les entreprises, quel que soit leur secteur d’activité, utilisent la process intelligence pour booster leurs résultats dans de nombreuses situations.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### Santé
 
 Les hôpitaux et d’autres prestataires de santé peuvent tirer le meilleur parti de la process intelligence pour améliorer l’expérience des patients et l’efficacité clinique, maintenir les normes de qualité, et éviter les risques de conformité. Ils peuvent être plus facilement en conformité en suivant les opérations en temps réel, tout en alertant le personnel de manière proactive lorsque les protocoles ne sont pas respectés ou que des écarts dans la trajectoire du processus sont détectés.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Banque
 
 La Process intelligence permet aux banques et autres institutions financières de piloter leur transformation numérique et de gérer les risques et les priorités de conformité réglementaire. Elles peuvent analyser les données des transactions quasiment en temps réel pour améliorer le service aux clients, accroître la précision du reporting, et réduire les risques d’erreurs coûteuses. Le suivi des processus les aide à garantir que le niveau de service (SLA), les exigences de conformité et les exigences législatives sont maintenus, ce qui limite les risques d’erreurs coûteuses qui pourraient autrement être négligées.
@@ -101,9 +119,6 @@ La Process intelligence permet aux banques et autres institutions financières d
 
 Les compagnies d’assurance peuvent utiliser l’analyse prédictive pour entreprendre une évaluation et une sélection des risques, ainsi que pour faire des arbitrages. Elles peuvent améliorer leur conformité grâce au suivi automatisé et aux mesures de remédiation. Elles peuvent en même temps gagner en productivité grâce au traitement direct des données. La Process analytics permet de dégager de la valeur commerciale, pour le personnel en interne, pour les experts, pour les organismes tiers d’assistance et pour les autres partenaires.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Associer la process intelligence à l’automatisation intelligente des processus
 
 La transformation numérique est l’intégration de la technologie numérique à tous les aspects de l’activité de l’entreprise, ce qui modifie fondamentalement la façon dont elle fonctionne et dont elle crée de la valeur pour ses clients. Pour que ces efforts portent leurs fruits, il faut radicalement repenser la façon dont l’entreprise emploie la technologie, les ressources humaines et les processus afin de vraiment influer sur sa performance. L'[IPA (automatisation intelligente des processus)](https://www.abbyy.com/fr/solutions/intelligent-process-automation-ipa/?itm%5Fsource=corpblog-fr) est au cœur de cette transformation. Elle combine l’intelligence artificielle (IA) à l’automatisation, pour créer des processus métier intelligents, pouvant s’adapter et évoluer au fil du temps.
@@ -121,7 +136,10 @@ Avant de l’automatiser, elle a utilisé des outils de process mining pour anal
 Après avoir mis en œuvre ces optimisations, l’entreprise a mis en place une solution d’automatisation intelligente des processus, comprenant des bots de RPA (automatisation robotisée des processus) pour la saisie et l’extraction des données, des algorithmes d’IA pour la prise de décision, l’automatisation des flux de travail pour orchestrer les processus de bout en bout et de outils de process intelligence pour suivre la performance du processus automatisé et identifier d’autres axes d’amélioration.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Approche holistique de la process intelligence
 
@@ -153,6 +171,12 @@ Pour réussir l’automatisation d’un processus, il faut d’abord le comprend
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -163,6 +187,18 @@ Ayant 30 ans d’expérience dans le secteur informatique, Scott a créé et dé
 
 Précédemment, Scott a également occupé les fonctions de Vice-Président Senior, Chargé du développement marketing & commercial de webMethods (aujourd’hui Software AG), où il était également responsable de la commercialisation, du développement commercial et de la planification stratégique pour les produits. Il a rejoint webMethods suite à son acquisition d’IntelliFrame Corporation, fournisseur de produits d’intégration des données, et du flux intégré InVista, ainsi que de la plateforme BPM qu’il a cofondée. Scott a également occupé de nombreuses fonctions de cadre dans la technologie, le marketing et le développement commercial, tant pour des entreprises publiques que privées. 
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Aimer, partager ou reposter 
 
 Partager 
