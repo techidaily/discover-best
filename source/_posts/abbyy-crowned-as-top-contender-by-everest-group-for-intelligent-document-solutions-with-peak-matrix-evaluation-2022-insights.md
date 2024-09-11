@@ -1,7 +1,7 @@
 ---
 title: ABBYY Crowned as Top Contender by Everest Group for Intelligent Document Solutions with Peak Matrix® Evaluation - 2022 Insights
-date: 2024-09-05T11:27:42.603Z
-updated: 2024-09-06T11:27:42.603Z
+date: 2024-09-10T10:22:27.064Z
+updated: 2024-09-11T10:22:27.064Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed134b8bf4a5fe9e955fed55f.jpg
@@ -11,32 +11,48 @@ thumbnail: https://thmb.techidaily.com/77d3e1b90c90a1223bd94c398f31bb9940ba742ed
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Recognized as a Leader in Everest Group’s Intelligent Document Processing Products PEAK Matrix® Assessment 2022 for Fourth Consecutive Year
 
 May 17, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![News 16 Success](https://static4.abbyy.com/abbyycommedia/33671/news-16-success.jpg) 
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+![News 16 Success](https://static4.abbyy.com/abbyycommedia/33671/news-16-success.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [ABBYY](https://tools.techidaily.com/abbyy/products/) has been recognized for the fourth consecutive year as a Leader in Everest Group’s Intelligent Document Processing (IDP) Products PEAK Matrix Assessment 2022\. Organizations worldwide rely on Everest Group’s IDP PEAK Matrix to evaluate the best solutions that understand business documents and find meaning in a human-like manner. ABBYY is positioned high for its market impact and vision & capability with ABBYY Vantage, the industry’s only low-code/no-code intelligent document processing solution that integrates easily into any intelligent automation platform, and its cognitive skills that are auto discoverable across many RPA systems, chatbots, and mobile apps.
 
 ABBYY Vantage stands out because it is document processing reimagined. It was designed for how people work today with its out-of-the-box capability to separate documents by type and accurately extract all the relevant data as well as the ability to get smarter and more accurate over time.   
@@ -46,12 +62,20 @@ _Bill Galusha, VP of Intelligent Document Processing at ABBYY._
 
 [![Everest Group IDP Products PEAK Matrix](https://static1.abbyy.com/abbyycommedia/35705/intelligent-document-processing-everestgroup-peakmatrix-2022.jpg?width=950)](https://www.abbyy.com/media/35705/intelligent-document-processing-everestgroup-peakmatrix-2022.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ABBYY is a Leader on Everest Group’s Intelligent Document Processing (IDP) PEAK Matrix® Assessment 2022\. Through its FlexiCapture and Vantage products, ABBYY is able to address a wide range of document processing use cases. Its online marketplace with a large number of pre-built assets, extensive network of implementation and training partners, as well as strong portfolio of connectors for leading providers in complementary technologies, such as RPA and BPM are differentiators that have contributed to its success.
 
 _Ashwin Gopakumar, Practice Director, Everest Group._
@@ -61,6 +85,20 @@ The PEAK Matrix is a proprietary framework for assessing the relative market suc
 Read the full evaluation of ABBYY’s Intelligent Document Processing capabilities by downloading Everest Group’s IDP PEAK Matrix Assessment [report](https://tools.techidaily.com/abbyy/products/).
 
 Register to see Vantage in action by registering for upcoming webinars May 18 and May 26, 2022 at <https://vantage.abbyy.com/north-america-webinar/>.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### About ABBYY
 
@@ -72,22 +110,38 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### ABBYY editorial contacts
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #### Catherine Johnson
 
 _Director of Analyst Relations & Global Media Relations_

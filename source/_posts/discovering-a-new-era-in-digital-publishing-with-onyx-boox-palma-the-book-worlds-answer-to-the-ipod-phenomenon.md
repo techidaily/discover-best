@@ -1,7 +1,7 @@
 ---
 title: Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
-date: 2024-09-05T11:27:41.155Z
-updated: 2024-09-06T11:27:41.155Z
+date: 2024-09-10T10:22:25.668Z
+updated: 2024-09-11T10:22:25.668Z
 tags:
   - product-reviews
 categories:
@@ -9,14 +9,36 @@ categories:
 thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/reading-a-comic-book-on-the-onyx-boox-palma_53279720798_o.jpg
 ---
 
-## Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+## Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Key Takeaways
 
 * The Boox Palma is a compact e-paper reader that can easily fit into your pocket, allowing for convenient reading on the go.
@@ -29,12 +51,20 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
 ![boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/2_ec7121ff-b556-40f2-8828-55ffebee8aec.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #####  Onyx Boox Palma
 
 7/ 10 
@@ -94,9 +124,37 @@ Expand
 
 [$279.99 at B&H Photo Video](https://www.bhphotovideo.com/c/product/1783278-REG/boox%5Fopc1084r%5F6%5F13%5Fpalma%5Fe%5Fink%5Ftablet.html/BI/22163/KBID/28708/SID/UUhtgUeUpU2000937?ap=y&amp%3Bsmp=y&amp%3Bsrsltid=AfmBOorHmCCXNHSZEAzABaZ%5FpFFt2aB6PPotGsLhGms2XyMsNtwLo1r9pIQ) [$279.99 at Boox](https://shareasale.com/r.cfm?b=2531318&u=4338022&m=153349&urllink=https%3A%2F%2Fbluettieu.pxf.io%2Fnlgoka&afftrack=techidaily) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  The Design of a Palm-Sized EReader
 
 ![button and sd card tray on the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/button-and-sd-card-tray-on-the-onyx-boox-palma_53279720818_o.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Sergio Rodriguez / How-To Geek
 
@@ -112,12 +170,6 @@ Sergio Rodriguez / How-To Geek
 
  A left-side button can be customized, but, by default, is set to refresh the screen when pressed. All these items worked together well to form an ultra-compact reading device. If the width feels too narrow, you can hold it sideways and let the text rotate. I used this layout occasionally and found it helpful for certain styles of writing which had longer sentences.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Boox Palma Software: A Small E-Paper Tablet
 
 ![home screen of the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/home-screen-of-the-onyx-boox-palma_53278546217_o.jpg) 
@@ -130,16 +182,24 @@ Sergio Rodriguez / How-To Geek
 
  All these things are possible if you want them badly enough. I’m happy they’re available to address a wide range of people’s needs. Importantly, though, those things didn’t get in the way of the Palma being a solid, Wi-Fi-connected eReader for me.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  Is the Boox Palma a Phone?
 
 ![Comparing the onyx boox palma to the size of the Samsung Galaxy S22 Ultra.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/comparing-the-onyx-boox-palma-to-the-size-of-the-samsung-galaxy-s22-ultra_53279788214_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
 The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
@@ -156,12 +216,6 @@ The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
 
  The Boox Palma's battery life will vary heavily depending on what you’re using it for. As an eReader, it should get you somewhere between seven and nine days of use. With more Wi-Fi, Bluetooth, and other app usage, that will probably go down to just a couple of days. I never felt like I had to monitor the battery level too closely. If you do want a constant gauge, an estimate of the amount of time remaining for battery power is available in the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Palma Price and Availability
 
  The Boox Palma is available now in black or white for $279.99\. It comes with a free silicon case. Of the few e-paper Boox devices in the 6-7-inch range, the Palma is the most expensive. It comes in just above the Boox Page. In this case, smallness is a feature that costs a premium.
@@ -170,18 +224,20 @@ The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
 
 ![reading on the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/reading-on-the-onyx-boox-palma_53279899430_o.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Sergio Rodriguez / How-To Geek
 
  The moment I saw the [Onyx Boox Palma](https://shareasale.com/r.cfm?b=2531318&u=4338022&m=153349&urllink=https%3A%2F%2Fbluettieu.pxf.io%2Fnlgoka&afftrack=techidaily), I had hoped that this newly sized eReader could solve my problem of not reading as much as I wanted to. I was optimistic that its compact frame would allow me to bring it along to more places.
@@ -194,18 +250,6 @@ Sergio Rodriguez / How-To Geek
 
 ![boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/2_ec7121ff-b556-40f2-8828-55ffebee8aec.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Onyx Boox Palma
 
 7/ 10 
