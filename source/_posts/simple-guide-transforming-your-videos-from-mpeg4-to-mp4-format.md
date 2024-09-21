@@ -1,7 +1,7 @@
 ---
 title: "Simple Guide: Transforming Your Videos From MPEG4 to MP4 Format"
-date: 2024-09-14T08:46:22.354Z
-updated: 2024-09-16T10:40:46.864Z
+date: 2024-09-20T16:08:38.938Z
+updated: 2024-09-21T16:00:12.554Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a128d746578608e8851ede9e.jpg
@@ -80,13 +80,6 @@ Just install this Windows video editor on your PC and learn how to edit a video 
 
 [Free Download](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## \---How to Edit Videos with the Free Video Editor
 
 ### Step 1: Add the Source Video into the Program
@@ -121,11 +114,25 @@ Click the **Rotate** (**circle-shaped**) icon next to the scissor icon to enter 
 
 ![Free Video Editing Software for Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-4.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _**#4\. Crop the Video**_
 
 Enter the **Crop** window by clicking the fourth icon on the toolbar. It offers [two video cropping modes](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) that allow you to freely drag the dotted box or manually input the resolution to select the crop area under **Free Aspect Ratio** or choose one common fixed aspect ratio from the drop-down list under **Fixed Aspect Ratio**. After that, you can also fine-tune the crop area for more accurate capture. Then click **OK** to go back.
 
 ![Best Free Video Editor for Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-5.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _**#5\. Add Effects/Filter to Video**_
 
@@ -138,13 +145,6 @@ _**#6\. Add Watermark to Video**_
 Click the **Stamper** icon to bring up the **Watermark** window. Here you can type in the text to [add text watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) and adjust the text font, size, etc. You can also [add the image watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) from the preset image or your local drive and adjust the shadow, opacity, and location of the added watermark. Then press **OK** to go back.
 
 ![How to Edit Videos on Laptop Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-7.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**#7\. Edit the Video Metadata**_
 
@@ -159,17 +159,16 @@ Besides these exemplified editing features, this Windows 10 video editor also al
 ![Free Video Editing Software for Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-9.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Choose a Preferred Output Format
@@ -185,6 +184,13 @@ Tips: Open the **Parameter settings** window, and you'll be able to modify the v
 When everything is OK, specify a destination folder to save the output video by pressing the **inverted triangle** button on the bottom. Finally, hit the **Run** button to start exporting the video.
 
 ![How to Edit a Video on Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-11.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Multi-functional Free Video Editor
 
@@ -207,6 +213,19 @@ Yes, the video editor is a function in the Microsoft Photos application. It is a
 Actually, Windows Media Player doesn't come with any video editing features. But you can trim videos in Windows Media Player with a smart plug-in (SolveigMM WMP Trimmer Plugin) installed.
 
 See how to trim video with Windows Media Player: [How to Cut Video in Windows Media Player](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How do I crop a video in Windows 10?
 
@@ -232,19 +251,6 @@ _\* Please do not use the DVD ripper to rip any copy-protected DVDs for commerci
 
 [![Back to Top](https://www.videoconverterfactory.com/tips/amp-imgs/btt.png)](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -260,20 +266,20 @@ _\* Please do not use the DVD ripper to rip any copy-protected DVDs for commerci
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-fundamentals-of-motion-design-and-practical-application/"><u>[New] Fundamentals of Motion Design & Practical Application</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-essential-screen-capture-techniques-for-powerpoint-presentations/"><u>[Updated] In 2024, Essential Screen Capture Techniques for PowerPoint Presentations</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-excellent-screen-capture-software-for-windows-11-users/"><u>[New] Excellent Screen Capture Software for Windows 11 Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-iphone-podcast-downloading-essentials-a-complete-walkthrough/"><u>[New] IPhone Podcast Downloading Essentials A Complete Walkthrough</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tailoring-your-videos-for-impact-on-instagram-feed-for-2024/"><u>[Updated] Tailoring Your Videos for Impact on Instagram Feed for 2024</u></a></li>
 <li><a href="https://discover-best.techidaily.com/2024mp4top8/"><u>「2024年の人気無料編集プログラム：オススメMP4専用フリーツールTOP8」</u></a></li>
 <li><a href="https://discover-best.techidaily.com/2024-wma-google/"><u>2024年度 WMAファイル再生不可解決法 - Google</u></a></li>
 <li><a href="https://discover-best.techidaily.com/5-effective-ways-to-open-mpeg-4-video-files-on-your-pc-with-windows-10-or-11/"><u>5 Effective Ways to Open MPEG-4 Video Files on Your PC with Windows 10 or 11</u></a></li>
-<li><a href="https://discover-best.techidaily.com/6-best-alternative-tools-to-wondershare-uniconverter/"><u>6 Best Alternative Tools to Wondershare UniConverter</u></a></li>
 <li><a href="https://discover-best.techidaily.com/1726030418530-aviutl/"><u>効果的にAviUtlでビデオクリッピング方法をマスターする</u></a></li>
-<li><a href="https://discover-best.techidaily.com/best-mpg-file-player-software-for-windows-top-10-picks/"><u>Best MPG File Player Software for Windows: Top 10 Picks</u></a></li>
-<li><a href="https://discover-best.techidaily.com/budget-friendly-guide-how-to-transfer-and-create-dvds-from-your-iphone-footage/"><u>Budget-Friendly Guide: How to Transfer and Create DVDs From Your iPhone Footage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/el-charisma-techniques-for-amplifying-youtube-visibility/"><u>Channel Charisma Techniques for Amplifying YouTube Visibility</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-how-to-empty-cache-in-various-popular-internet-browsers/"><u>Expert Advice: How to Empty Cache in Various Popular Internet Browsers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-vivo-y78t-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Vivo Y78t Face Lock?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/leading-apps-top-10-choices-for-seamless-vimeo-file-extraction/"><u>Leading Apps Top 10 Choices for Seamless Vimeo File Extraction</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-motorola-defy-2-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Motorola Defy 2 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/the-top-rated-video-editing-tools-for-mac-in/"><u>The Top-Rated Video Editing Tools for Mac In</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-poco-x5-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Poco X5</u></a></li>
+<li><a href="https://os-tips.techidaily.com/innovative-tricks-for-powering-up-your-iphone-without-traditional-methods/"><u>Innovative Tricks for Powering Up Your iPhone without Traditional Methods</u></a></li>
+<li><a href="https://games-able.techidaily.com/nintendo-switch-online-price-analysis-required/"><u>Nintendo Switch Online Price Analysis Required</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simultaneous-spotify-sessions-can-you-and-your-buddy-listen-at-once/"><u>Simultaneous Spotify Sessions: Can You and Your Buddy Listen at Once?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-chrome-browser-vocal-transformers-revealed-for-enthusiast-users-for-2024/"><u>Top Chrome Browser Vocal Transformers Revealed for Enthusiast Users for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726029504324-windows/"><u>Windows上で高速ビデオ圧縮手順ガイド</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726029327133-xmedia-recode/"><u>XMedia Recode: 複数のビデオファイルを統合する方法</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726028138502-1080p/"><u>アマゾンプライム・スクリーンよりも安価な1080p映画配信サービスの応用法！</u></a></li>
 </ul></div>
 
