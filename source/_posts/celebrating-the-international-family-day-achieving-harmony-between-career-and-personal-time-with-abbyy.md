@@ -1,7 +1,7 @@
 ---
 title: "Celebrating the International Family Day: Achieving Harmony Between Career and Personal Time with ABBYY"
-date: 2024-09-05T11:27:42.759Z
-updated: 2024-09-06T11:27:42.759Z
+date: 2024-09-24T17:46:51.669Z
+updated: 2024-09-30T21:05:12.635Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a44de758792af2fb67431bc0cd10b70e0176e5a8a3e2c53a5711bc4054272247.jpg
@@ -25,12 +25,6 @@ From stories of siblings and partners working together to colleagues discovering
 
 ![anastasiia-anna-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/anastasiia-anna-600x600.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 First up, we're going to our Ukrainian office where we find sisters **Anastasiia and Anna**: 
 
 "Talking about this feels like uncovering a big secret," says Anastsiia, our US Fulfilment Team Lead, "I have a baby sister working with me at ABBYY!" 
@@ -60,11 +54,12 @@ I have a constant source of support and someone to bounce ideas off.
 Anna, Customer Service Expert
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ryan
 
 ![ryan-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/ryan-600x600.png)
@@ -80,21 +75,23 @@ For me to respond with good energy, it is key that I prioritize maintaining a go
 Ryan, Senior Solution Consultant
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Steve
 
 ![steve-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/steve-600x600.png)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Steve**, our Head of Talent Acquisition based in the US, shares Ryan's view that once you become a parent, striking the perfect work-life balance takes center stage.
 
 “For me, work-life balance has always been a priority. Since becoming a parent, however, it has become both more important and a challenge to balance the two. One thing that has become abundantly clear to me is how fast time goes by once you’re a parent, which has really put things into perspective in terms of what matters most when prioritizing one’s time. After having my first child, I found myself seeking greater flexibility in my career to accommodate these new responsibilities. Working remotely allows that flexibility to not only have more time but also allows you to choose how that time is spent. It has been a game changer for me and my family in the best of ways.
@@ -105,22 +102,10 @@ After having my first child, I found myself seeking greater flexibility in my ca
 
 Steve, Head of Talent Acquisition
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Aleksandar
 
 ![aleksandar-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/aleksandar-600x600.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 "At first, I thought that becoming a parent will maybe have, so to say, a negative impact on my work and career," confessed **Aleksandar** from our Finance team in Serbia who has recently joined ABBYY after becoming a father. 
 
 "In my case, children were the biggest motivation and one of the main reasons that led me to make a change in my professional career and find a role outside of the industry I was working in. They were also the main reason to get out of my comfort zone and, to seek new opportunities and challenges.
@@ -134,6 +119,13 @@ Aleksander, Order Fulfillment Specialist
 ### Konstantin and Ekaterina
 
 ![konstantin-ekaterina-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/konstantin-ekaterina-600x600.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In our Cyprus Research Development (R&D) and Product Development teams, we found **Konstantin** and **Ekaterina** who shared a bit about their experience working as a married couple with children at ABBYY:
 
@@ -149,12 +141,6 @@ Yeah, we chat about work at home sometimes, but we make sure to switch it off, t
 
 Konstantin and Ekaterina, R&D and Product Development
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Rahul
 
 ![rahul-600x600](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/international-day-of-families/rahul-600x600.png) 
@@ -227,8 +213,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -236,4 +220,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-legendary-loops-leading-10-rogues/"><u>2024 Approved Legendary Loops Leading 10 Rogues</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-itel-p40-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Itel P40 PC | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/augmented-realms-cinemas-evolution/"><u>Augmented Realms Cinema's Evolution</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-se-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your iPhone SE</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-metaverse-meme-compendium-ideas-galore/"><u>In 2024, The Ultimate Metaverse Meme Compendium Ideas Galore</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-the-potential-effective-use-of-split-screen-on-facebook/"><u>In 2024, Unlocking the Potential Effective Use of Split-Screen on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/inside-picsarts-new-horizon-the-ultimate-2024-review-and-tutorial/"><u>Inside PicsArt's New Horizon – The Ultimate 2024 Review & Tutorial</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimizing-online-presence-with-cookiebot-technology/"><u>Optimizing Online Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/personalized-engagement-boosted-by-cookiebot-technology/"><u>Personalized Engagement Boosted by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-cancer-therapy-top-tier-clinic-boosts-efficiency-and-care-quality-with-abbyy-idp-integration/"><u>Revolutionizing Cancer Therapy: Top-Tier Clinic Boosts Efficiency and Care Quality with ABBYY IDP Integration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/sichern-sie-sich-einen-vorteil-gegenuber-digital-nativen-konkurrenten-in-der-finanzbranche-mit-abbyy-checklisten-strategien-zum-gelingen/"><u>Sichern Sie Sich Einen Vorteil Gegenüber Digital Nativen Konkurrenten in Der Finanzbranche Mit ABBYY Checklisten: Strategien Zum Gelingen</u></a></li>
+<li><a href="https://discover-best.techidaily.com/spotlighting-abbyys-cutting-edge-solutions-breakthroughs-in-customer-engagement-and-partner-synergy/"><u>Spotlighting ABBYY's Cutting-Edge Solutions: Breakthroughs in Customer Engagement & Partner Synergy</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solution-for-dealing-with-kernel-data-error-pages/"><u>Step-by-Step Solution for Dealing with Kernel Data Error Pages</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/toshibas-latest-tec-series-incorporating-advanced-abbyy-ocr-for-improved-document-processing/"><u>Toshiba's Latest Tec Series: Incorporating Advanced ABBYY OCR for Improved Document Processing</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transform-your-photos-and-pdfs-into-editable-text-on-the-go-using-ocr-for-iphones-finereader-integration-tutorial/"><u>Transform Your Photos and PDFs Into Editable Text on the Go Using OCR for iPhones - FineReader Integration Tutorial</u></a></li>
+<li><a href="https://discover-best.techidaily.com/unleash-precision-marketing-harness-the-power-of-cookiebot-technology/"><u>Unleash Precision Marketing: Harness the Power of Cookiebot Technology</u></a></li>
+</ul></div>
 

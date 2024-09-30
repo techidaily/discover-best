@@ -1,40 +1,22 @@
 ---
 title: Boost Your Digital Transformation with ABYY's Powerful Solutions at the Documation 2017 Exhibition
-date: 2024-09-05T11:27:42.709Z
-updated: 2024-09-06T11:27:42.709Z
+date: 2024-09-28T18:20:42.937Z
+updated: 2024-09-30T16:42:41.353Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ae6340df4d4c49e0276be718794a66a7c17d49d4e0bc6ada915b9fedacb78d4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Boost Your Digital Transformation with ABYY's Powerful Solutions at the Documation 2017 Exhibition
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY présente des solutions puissantes pour accélérer la transformation digitale au salon Documation 2017
 
 23 mars 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Les 29 et 30 Mars 2017 – Paris Porte de Versailles, Hall 2.2, stand B33_
 
   
@@ -83,8 +65,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -92,4 +72,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-conquer-business-the-top-12-tycoon-games-for-leaders-in-training/"><u>[New] In 2024, Conquer Business The Top 12 Tycoon Games for Leaders-in-Training</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-harmonic-hits-top-rated-dj-template-downloads-for-2024/"><u>[Updated] Harmonic Hits Top-Rated DJ Template Downloads for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-streamlining-capture-procedures-with-adobe-presenter-for-2024/"><u>[Updated] Streamlining Capture Procedures with Adobe Presenter for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driving-forward-with-teamwork-and-novel-approaches-in-the-insurance-industry/"><u>Driving Forward with Teamwork and Novel Approaches in the Insurance Industry</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-site-visibility-with-the-power-of-cookiebot-seo-solutions/"><u>Enhance Your Site Visibility with the Power of Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-site-performance-with-advanced-cookiebot-technology/"><u>Enhanced Site Performance with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-digital-interactions-with-cookiebot-technology/"><u>Enhancing Digital Interactions with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-your-site-with-cookiebots-cutting-edge-analytics-tools/"><u>Enhancing Your Site with Cookiebot's Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/step-by-step-guide-converting-aep-files-into-high-quality-mp4-videos-using-adobe-after-effects/"><u>Step-by-Step Guide: Converting .AEP Files Into High-Quality MP4 Videos Using Adobe After Effects</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-evolution-of-macos-unveiling-each-release-and-its-features-in-detail/"><u>The Evolution of macOS: Unveiling Each Release and Its Features in Detail</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

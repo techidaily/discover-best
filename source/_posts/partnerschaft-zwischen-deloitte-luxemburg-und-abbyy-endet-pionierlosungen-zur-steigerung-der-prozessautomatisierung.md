@@ -1,7 +1,7 @@
 ---
 title: Partnerschaft Zwischen Deloitte Luxemburg Und ABBYY Endet – Pionierlösungen Zur Steigerung Der Prozessautomatisierung
-date: 2024-09-05T11:27:43.272Z
-updated: 2024-09-06T11:27:43.272Z
+date: 2024-09-28T20:15:10.433Z
+updated: 2024-09-30T19:11:24.971Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e63ca3e1151548a8f471104b.jpg
@@ -11,38 +11,14 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Deloitte Luxemburg und ABBYY schließen Partnerschaft, um Kunden bei der Automatisierung ihrer Geschäftsprozesse zu unterstützen
 
 23\. März 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Deloitte Luxemburg und ABBYY sind eine [Partnerschaft](https://tools.techidaily.com/abbyy/products/) eingegangen, die es ihren Kunden ermöglichen wird, Geschäftsprozesse zu beschleunigen und ihre Rentabilität zu steigern. Das Unternehmen wird Kunden die Lösung für intelligente Dokumentenverarbeitung (IDP) von ABBYY anbieten, welche die besten Fähigkeiten aus NLP, maschinellem Lernen und fortschrittlichen Erkennungsfunktionen vereint.
 
 ABBYY stellt die weltweit fortschrittlichste Digital Intelligence-Plattform für den Unternehmensmarkt bereit. Die IDP-Lösungen von ABBYY bieten nicht nur eine hochwertige Text- und Bilderkennung, sondern auch eine Technologie zur Konvertierung von Dokumenten, die sich nahtlos in alle gängigen intelligenten Automatisierungsplattformen integrieren lässt. Die Plattform verarbeitet jede Art von Dokumenten, von einfachen Formularen bis hin zu komplexen Freiform-Dokumenten und jede Auftragsgröße, von einzelnen Ad-hoc-Dokumenten bis hin zu großen Batch-Jobs, die strenge Service Level Agreements (SLAs) erfordern. Auf diese Weise hilft ABBYY Unternehmen dabei, Einblick in alle Daten zu gewinnen, die sie besitzen – sowohl in strukturierte Informationen, wie z.B. Berichte, als auch in unstrukturierte Informationen, wie z.B. E-Mails.
@@ -61,16 +37,24 @@ Mehr über die Partnerschaft zwischen Deloitte Luxemburg und ABBYY sowie über d
 
 \[1\] IDC, European Intelligent Process Automation Software Forecast, 2020-2024, Doc #EUR147055020, December 2020.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über Deloitte Luxemburg
 
 Mit mehr als 130 Partnern und 2.300 Mitarbeitern ist Deloitte Luxemburg eines der größten, stärksten und ältesten professionellen Dienstleistungsunternehmen im Großherzogtum. Seit mehr als 70 Jahren sind dessen talentierte Teams für Kunden in verschiedenen Branchen tätig und bieten nationalen und internationalen Kunden einen hohen Mehrwert in den Bereichen Wirtschaftsprüfung, Consulting, Finanzberatung, Risikoberatung, Steuern und damit verbundenen Dienstleistungen. Deloitte Luxemburg ist Teil des globalen Deloitte-Netzwerks, das in mehr als 150 Ländern und Territorien vertreten ist und vier von fünf Fortune Global 500®-Unternehmen betreut. Erfahren Sie unter [www.deloitte.com/lu](http://www.deloitte.com/lu) wie die Mitarbeiter von Deloitte etwas bewegen.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -82,21 +66,23 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -111,8 +97,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,4 +104,23 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-catching-every-frame-leading-windows-10-capture-tools-for-2024/"><u>[New] Catching Every Frame Leading Windows 10 Capture Tools for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-no-price-no-problem-turning-twitter-vids-into-gifs/"><u>[Updated] In 2024, No Price, No Problem Turning Twitter Vids Into GIFs</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-expert-online-assistance-hub-troubleshoot-and-optimize-winx-dvd-rippervideo-converter-suite/"><u>1. Expert Online Assistance Hub: Troubleshoot & Optimize WinX DVD Ripper/Video Converter Suite</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-boosting-engagement-interactive-features-of-zoom-on-win11-pcs/"><u>2024 Approved Boosting Engagement Interactive Features of Zoom on Win11 PCs</u></a></li>
+<li><a href="https://discover-best.techidaily.com/202-5/"><u>未來免費錄影奧殼，探索202지 前5名將會是什麼？</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comment-piratage-sans-frais-copier-un-dvd-de-la-region-pal-ou-de-la-region-2-avec-les-formats-de-video-contemporains/"><u>Comment Piratage Sans Frais : Copier Un DVD De La Région PAL Ou De La Région 2 Avec Les Formats De Vidéo Contemporains</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-action-footage-enhanced-top-mic-picks/"><u>In 2024, Action Footage Enhanced Top Mic Picks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-reno-10-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Reno 10 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-ultimate-guide-to-generating-ideal-youtube-titles-on-a-shoestring/"><u>In 2024, The Ultimate Guide to Generating Ideal YouTube Titles on a Shoestring</u></a></li>
+<li><a href="https://discover-best.techidaily.com/lossless-compression-techniques-for-avi-video-files-in-windows-10-a-step-by-step-guide/"><u>Lossless Compression Techniques for AVI Video Files in Windows 10: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/syncing-issue-fix-for-plex-subtitles-across-multiple-platforms/"><u>Syncing Issue Fix for Plex Subtitles Across Multiple Platforms</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/testing-results-how-reliable-is-the-western-digital-data-lifeguard-for-ssd-maintenance/"><u>Testing Results: How Reliable Is the Western Digital Data LifeGuard for SSD Maintenance?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-essential-how-to-for-extracting-youtube-srt-files/"><u>The Essential How-To for Extracting YouTube SRT Files</u></a></li>
+<li><a href="https://discover-best.techidaily.com/understanding-the-differences-avi-versus-mp4-in-multimedia-files/"><u>Understanding the Differences: AVI Versus MP4 in Multimedia Files</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ps4dvd/"><u>インターネット不要！PS4DVD映像最適化：オフライン時にもクリアな紹介方法</u></a></li>
+</ul></div>
 
