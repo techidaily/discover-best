@@ -1,40 +1,22 @@
 ---
 title: ABBYY Champions International Campaign for Building Confident, Dependable Artificial Intelligence Systems
-date: 2024-09-05T11:27:45.219Z
-updated: 2024-09-06T11:27:45.219Z
+date: 2024-10-01T18:16:30.260Z
+updated: 2024-10-06T05:09:45.600Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e3fbcfe204dfbd52573599aedc96b853d77272f3befed715bed50ff29c06e5a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Champions International Campaign for Building Confident, Dependable Artificial Intelligence Systems
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Launches Global Initiative Promoting the Development of Trustworthy Artificial Intelligence
 
 June 09, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Growing Concerns about Digital Ethics and Use of Data for Machine Learning Models Call for Industry-Wide Transparency_
 
 ABBYY, a Digital Intelligence company, today launched a global initiative to promote the development of trustworthy artificial intelligence (AI) technology. As AI becomes ubiquitous across consumer and enterprise high-value and large-scale uses and more open source tools become available for digitizing data, the ethical use of accessing and training data is imperative.
@@ -83,8 +65,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -92,4 +72,35 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-enhancing-worker-engagement-through-thoughtful-space-configuration-for-2024/"><u>[New] Enhancing Worker Engagement Through Thoughtful Space Configuration for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-easy-steps-to-starting-an-instagram-live/"><u>[Updated] Easy Steps to Starting an Instagram Live</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-pioneers-designing-the-online-avengers-landscape/"><u>[Updated] Pioneers Designing the Online Avengers Landscape</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-backtracking-visuals-proficient-strategies-for-insta-image-source/"><u>2024 Approved Backtracking Visuals Proficient Strategies for Insta Image Source</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-free-high-definition-video-players-for-modern-operating-systems-top-picks/"><u>Best Free High-Definition Video Players for Modern Operating Systems: Top Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comprehensive-guide-to-editing-mov-videos-trimming-cropping-merging-and-beyond/"><u>Comprehensive Guide to Editing MOV Videos: Trimming, Cropping, Merging, and Beyond</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deceptive-chatbot-plugin-on-chrome-hijacks-your-social-network-logins/"><u>Deceptive Chatbot Plugin on Chrome Hijacks Your Social Network Logins</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/gratis-download-von-imgburn-professionelle-software-zum-brennen-und-schreiben-kopierschutzbefreiter-dvds/"><u>Gratis Download Von ImgBurn - Professionelle Software Zum Brennen Und Schreiben Kopierschutzbefreiter DVDs</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-se-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone SE To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-mac-studios-for-top-quality-recordings/"><u>In 2024, Mac Studios for Top-Quality Recordings</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-xiaomi-14-ultra-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Xiaomi 14 Ultra FRP</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-3-favorite-free-windows-10-dvd-players-of-2021-compatible-with-all-formats/"><u>Top 3 Favorite Free Windows 10 DVD Players of 2021 - Compatible with All Formats</u></a></li>
+<li><a href="https://discover-best.techidaily.com/troubleshooting-guide-fixing-failed-video-decode-issue-in-windows-dvd-software/"><u>Troubleshooting Guide: Fixing Failed Video Decode Issue in Windows DVD Software</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725285866710-windows-10/"><u>Windows 10で使いやすい最優秀の無料メールアプリ選び - 推薦リストを見て</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,46 +1,22 @@
 ---
 title: Elevate Your Web Analytics with the Power of Cookiebot Technology
-date: 2024-09-05T11:27:45.485Z
-updated: 2024-09-06T11:27:45.485Z
+date: 2024-10-04T20:21:13.951Z
+updated: 2024-10-06T02:58:48.412Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d3b9fa260885ec727c421c1f7392781651fabce3da6c8f310b1d694d013fd73d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Elevate Your Web Analytics with the Power of Cookiebot Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY nomme Anthony Macciola Chief Innovation Officer
 
 30 novembre 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY, fournisseur mondial de solutions de capture intelligentes pour améliorer les résultats professionnels, annonce aujourd'hui la nomination d'Anthony Macciola en tant que Chief Innovation Officer. Dans cette fonction nouvellement créée, Anthony Macciola sera en charge de la promotion de l'innovation et de la direction du développement de nouveaux concepts de produits et de services comme partie intégrante de la vision et de la stratégie d'ABBYY focalisées sur le marché.
 
   
@@ -99,8 +75,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,4 +82,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-the-blueprint-for-building-an-iconic-online-identity-on-youtube/"><u>[New] 2024 Approved The Blueprint for Building an Iconic Online Identity on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-reimagined-sony-bdp-s6700-experience/"><u>[New] The Reimagined Sony BDP-S6700 Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-visual-storytelling-and-auditory-art-converting-instagrams-to-songs/"><u>[New] Visual Storytelling & Auditory Art Converting Instagrams to Songs</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-windows-11-pro-prime-video-cameras-for-pcs-for-2024/"><u>[New] Windows 11 Pro Prime Video Cameras for PCs for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unlocking-cash-on-the-snapchat-grid/"><u>[Updated] 2024 Approved Unlocking Cash on the Snapchat Grid</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comment-migrer-des-films-a-partir-dun-dvd-vers-un-systeme-nas-pour-une-lecture-en-continu-synologyqnap/"><u>Comment Migrer Des Films À Partir D'un DVD Vers Un Système NAS Pour Une Lecture en Continu (Synology/QNAP) ?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/fehlerfrei-konvertieren-mit-handbrake-auf-windows-hemmen-entdecken-sie-die-besten-workarounds-und-alternativsoftware/"><u>Fehlerfrei Konvertieren Mit HandBrake Auf Windows Hemmen? Entdecken Sie Die Besten Workarounds Und Alternativsoftware.</u></a></li>
+<li><a href="https://discover-best.techidaily.com/fixing-davinci-resolve-solving-common-webm-file-transfer-problems/"><u>Fixing DaVinci Resolve: Solving Common WebM File Transfer Problems</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-overcoming-error-0x80240034-on-windows-10/"><u>Step-by-Step Guide: Overcoming Error 0X80240034 on Windows 10</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-xiaomi-redmi-k70-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Xiaomi Redmi K70 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-hevc-h265-video-encoders-lightning-fast-performance-with-cuda-and-nvenc-integration/"><u>Top HEVC H.265 Video Encoders - Lightning-Fast Performance with CUDA & NVENC Integration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winx-dvd-ripper-platinum-dvd32xwindows-10/"><u>WinX DVD Ripper Platinum: 超快速DVD解碼32x功能，Windows 10下線轉檔成功技術</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

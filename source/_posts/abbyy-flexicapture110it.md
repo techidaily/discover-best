@@ -1,18 +1,12 @@
 ---
 title: インボイスを超速化！ABBYY FlexiCapture®で処理時間1/10、企業IT進化のカギ
-date: 2024-09-05T11:27:43.442Z
-updated: 2024-09-06T11:27:43.442Z
+date: 2024-10-04T23:21:59.281Z
+updated: 2024-10-05T22:28:21.719Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5dde8e23432eb9faea6481b1841af4ec33dc75da64317f31b7964d607abcd74.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## インボイスを超速化！ABBYY FlexiCapture®で処理時間1/10、企業IT進化のカギ
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
@@ -23,12 +17,6 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/ja/125069.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 ## インボイスの処理時間が10分の1まで短縮企業のデジタルトランスフォーメーションを支える ABBYY FlexiCapture®
@@ -38,20 +26,22 @@ Transportation & Logistics | Accounts Payable Automation
 ![Sumitomo Warehpuse Ltd chooses ABBYY](https://static1.abbyy.com/abbyycommedia/29245/08a-jp-sumitomo-main-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### お客様の概要
 
 ![株式会社住友倉庫](https://static1.abbyy.com/abbyycommedia/29244/sumitomo-logo-210x44.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | 株式会社住友倉庫                                                          |
 | ------ | ----------------------------------------------------------------- |
@@ -143,41 +133,31 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 
 ![写真左より、NECソリューションイノベータ株式会社 熊坂様、株式会社住友倉庫大津様、木村様、上原様、日本電気株式会社 牛尾様](https://static2.abbyy.com/abbyycommedia/29248/08d-jp-sumitomo-content-750x375.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 写真左より、NECソリューションイノベータ株式会社 熊坂様、株式会社住友倉庫 大津様、木村様、上原様、日本電気株式会社 牛尾様
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static1.abbyy.com/abbyycommedia/29247/08c-jp-sumitomo-main-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/29130/customer-story-sumitomo-ja.pdf "PDF版") [PDF版](https://static5.abbyy.com/abbyycommedia/29130/customer-story-sumitomo-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://static5.abbyy.com/abbyycommedia/29130/customer-story-sumitomo-ja.pdf "PDF版") 
 
@@ -189,12 +169,6 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。
@@ -207,8 +181,6 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -216,4 +188,26 @@ FlexiCaptureを使った通関業務の改善は、競合他社との差別化�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-swift-screen-capture-with-your-idevice/"><u>[New] In 2024, Swift Screen Capture with Your iDevice</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-slideshow-101-a-beginners-guide-for-2024/"><u>[Updated] FB Slideshow 101 A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-master-the-art-of-recording-lol-discover-3-essential-tips/"><u>[Updated] Master the Art of Recording LOL - Discover 3 Essential Tips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-webcam-and-monitor-recording-how-to-combine-for-2024/"><u>[Updated] Webcam & Monitor Recording How to Combine for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/2024mp4top8/"><u>「2024年の人気無料編集プログラム：オススメMP4専用フリーツールTOP8」</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-ultimate-guide-elevating-your-videos-using-top-notch-enhancers/"><u>1. Ultimate Guide: Elevating Your Videos Using Top-Notch Enhancers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-drone-footage-a-step-by-step-guide/"><u>2024 Approved Mastering Drone Footage A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/2024-wma-google/"><u>2024年度 WMAファイル再生不可解決法 - Google</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726027139386-mp3/"><u>連結高音質MP3ファイル方法:超単純かつ早いプロセスを解明</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726030418530-aviutl/"><u>効果的にAviUtlでビデオクリッピング方法をマスターする</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726028094716-dvdwindows-10/"><u>DVDプレーヤー設定：Windows 10でスムーズに鑑賞始めよう！</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-blueprinting-engaging-content-layouts-on-youtube/"><u>In 2024, Blueprinting Engaging Content Layouts on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-capture-every-angle-top-360-streaming-devices-reviewed/"><u>In 2024, Capture Every Angle Top 360° Streaming Devices Reviewed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-realme-gt-neo-5-se-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Realme GT Neo 5 SE to Another | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/nvidia-driver-crash-now-functioning-properly/"><u>Nvidia Driver Crash: Now Functioning Properly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-nubia-z50s-pro-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Nubia Z50S Pro for Streaming | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726029504324-windows/"><u>Windows上で高速ビデオ圧縮手順ガイド</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726029327133-xmedia-recode/"><u>XMedia Recode: 複数のビデオファイルを統合する方法</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726028138502-1080p/"><u>アマゾンプライム・スクリーンよりも安価な1080p映画配信サービスの応用法！</u></a></li>
+</ul></div>
 

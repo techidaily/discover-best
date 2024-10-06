@@ -1,40 +1,22 @@
 ---
 title: International AI and RPA Specialists Gather at the ABBYY Conference During the 2^Nd^AI & RPA World Summit, Berlin 2018
-date: 2024-09-05T11:27:44.053Z
-updated: 2024-09-06T11:27:44.053Z
+date: 2024-10-04T21:07:52.095Z
+updated: 2024-10-05T23:08:33.040Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d10871bf9176c5cb0128f25d3d2d16f8b628e764cfef6c9d047807d2b22fa28f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## International AI and RPA Specialists Gather at the ABBYY Conference During the 2^Nd^AI & RPA World Summit, Berlin 2018
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Künstliche Intelligenz und Robotic Process Automation – der nächste Schritt auf dem Weg der Digitalen Transformation
 
 7\. Juni 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _ABBYY trifft auf dem AI & RPA World Summit 2018 in Berlin internationale Experten für künstliche Intelligenz und Robotic Process Automation, um zu diskutieren, wie Unternehmen die Digitale Transformation mit intelligenten Technologien meistern._
 
   
@@ -85,8 +67,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -94,4 +74,33 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/he-ultimate-guide-to-maximizing-content-visibility-via-spotlighting-on-youtube-for-2024/"><u>[New] The Ultimate Guide to Maximizing Content Visibility via Spotlighting on Youtube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-extensive-overview-hero4-black-dynamics/"><u>[Updated] 2024 Approved Extensive Overview Hero4 Black Dynamics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-ad-dominance-through-structured-strategic-copywriting-techniques/"><u>2024 Approved Facebook Ad Dominance Through Structured, Strategic Copywriting Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/all-encompassing-look-at-the-ricoh-theta-s-design/"><u>All-Encompassing Look at the Ricoh Theta S Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/exemption-persists-vaccine-skeptics-flourish-on-facebook-platform/"><u>Exemption Persists: Vaccine Skeptics Flourish on Facebook Platform</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/highlight-your-pc-gaming-6-effective-screen-methods/"><u>Highlight Your PC Gaming 6 Effective Screen Methods</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leverage-the-power-of-cookiebot-for-boosted-online-presence-and-seo-success/"><u>Leverage the Power of Cookiebot for Boosted Online Presence and SEO Success</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leveraging-outsourced-software-systems-a-deep-dive-into-the-world-of-third-party-technologies/"><u>Leveraging Outsourced Software Systems: A Deep Dive Into the World of Third-Party Technologies</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maitriser-le-processus-metier-principal-chez-balfour-beatty-rail-avec-abbyy-finereader/"><u>Maîtriser Le Processus Métier Principal Chez Balfour Beatty Rail Avec ABBYY FineReader</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maximizing-financial-efficiency-through-process-analysis-achieving-a-6m-breakthrough-in-client-focused-savings/"><u>Maximizing Financial Efficiency Through Process Analysis: Achieving a $6M Breakthrough in Client-Focused Savings</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimized-with-cookiebot-technology-elevate-site-engagement-and-tracking-capabilities/"><u>Optimized with Cookiebot Technology - Elevate Site Engagement and Tracking Capabilities</u></a></li>
+<li><a href="https://discover-best.techidaily.com/relemars-discovery-of-expansion-possibilities-through-abbyy-flexicapture/"><u>Relemar's Discovery of Expansion Possibilities Through ABBYY FlexiCapture</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

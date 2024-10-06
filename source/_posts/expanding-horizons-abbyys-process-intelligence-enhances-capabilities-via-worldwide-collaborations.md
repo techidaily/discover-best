@@ -1,40 +1,22 @@
 ---
 title: "Expanding Horizons: ABBYY's Process Intelligence Enhances Capabilities via Worldwide Collaborations"
-date: 2024-09-05T11:27:43.923Z
-updated: 2024-09-06T11:27:43.923Z
+date: 2024-09-29T04:11:57.964Z
+updated: 2024-10-06T04:18:38.941Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec64675cc9c86f982f27e5ed1c09.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Expanding Horizons: ABBYY's Process Intelligence Enhances Capabilities via Worldwide Collaborations
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Process Intelligence Gains Momentum with Global Partnerships
 
 September 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _One year after TimelinePI merger, momentum driven by technical innovation and demand for rapid business transformation_
 
 One year after [Timeline PI merged with ABBYY](https://tools.techidaily.com/abbyy/products/), ABBYY reports growing momentum for its advanced Process Intelligence solution. ABBYY offers the only solution that combines the benefits of accessing and understanding enterprise content with process analysis. It empowers businesses to use the information contained within their systems to create a visual model of their processes, analyze them to identify opportunities for process improvement, perform real-time operational monitoring and predict and take pre-emptive action of future outcomes to facilitate decision-making.
@@ -87,8 +69,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +76,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unraveling-the-complexity-of-youtube-analytics-analysis/"><u>[New] Unraveling the Complexity of YouTube Analytics Analysis</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-clandestine-scrollers-of-fb-stories/"><u>[Updated] Clandestine Scrollers of Fb Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-checklist-of-key-elements-in-tagging-a-video/"><u>[Updated] In 2024, The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/10-most-advanced-hashtag-monitors-on-social-media-sites-fbtweetinsta/"><u>10 Most Advanced Hashtag Monitors on Social Media Sites (FB/Tweet/Insta)</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-steam-vac-denial-for-gaming-sessions/"><u>Addressing Steam VAC Denial for Gaming Sessions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-f04-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Samsung Galaxy F04</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-experience-unleashing-personalized-user-engagement/"><u>Cookiebot-Enhanced Experience: Unleashing Personalized User Engagement</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-site-performance-boosting-your-online-presence/"><u>Cookiebot-Enhanced Site Performance: Boosting Your Online Presence</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-power-your-websites-analytics-and-optimization/"><u>Cookiebot-Enhanced: Power Your Website's Analytics and Optimization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-unleashing-powerful-data-driven-marketing-strategies/"><u>Cookiebot-Enhanced: Unleashing Powerful Data Driven Marketing Strategies</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-your-ultimate-cookie-consent-and-gdpr-compliance-solution/"><u>Cookiebot: Your Ultimate Cookie Consent and GDPR Compliance Solution</u></a></li>
+<li><a href="https://discover-best.techidaily.com/customized-user-journeys-through-innovative-cookiebot-technology/"><u>Customized User Journeys Through Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-lenovo-thinkphone-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Lenovo ThinkPhone in Minutes | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-microsoft-11s-input-lag-8-effective-steps/"><u>Solving Microsoft 11'S Input Lag: 8 Effective Steps</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

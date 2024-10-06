@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced User Experience: The Secret Ingredient for Successful Online Presence"
-date: 2024-09-05T11:27:44.739Z
-updated: 2024-09-06T11:27:44.739Z
+date: 2024-10-01T19:12:49.100Z
+updated: 2024-10-06T00:55:12.692Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bbef43834dfaff617698ea8f3b5ade870119d6ba3c72e1c68f4dc5c5b52a7aac.jpg
@@ -20,11 +20,12 @@ German
 ![09 Ebernardrohe 198X198](https://static3.abbyy.com/abbyycommedia/25132/retarus-logo-forspeakers.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![09 Ebernardrohe 198X198](https://static4.abbyy.com/abbyycommedia/25116/09-ebernardrohe-198x198.png)
 
 ### Eberhard Rohe
@@ -34,12 +35,33 @@ Account Director, **Retarus**
 ![37 Oliverbohl 198X198](https://static5.abbyy.com/abbyycommedia/35547/kfw-logo-forspeakers-86x44.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![37 Oliverbohl 198X198](https://static4.abbyy.com/abbyycommedia/28979/37-oliverbohl-198x198.png)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Dr. Oliver Bohl
 
@@ -47,12 +69,6 @@ Director Digital Channels, **KfW Bankengruppe**
 
 ![39 Matthiasabel 198X198](https://static4.abbyy.com/abbyycommedia/29273/dz-privatbank-forspeakers.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![39 Matthiasabel 198X198](https://static4.abbyy.com/abbyycommedia/29271/39-matthiasabel-198x198.png)
 
 ### Matthias Abel
@@ -61,26 +77,15 @@ Gruppenleiter Insti- und Direktkundenservice, **DZ Direktbank**
 
 ![02 Alexandrejanicki 198X198](https://static4.abbyy.com/abbyycommedia/35123/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### Alexandre Janicki
 
 Senior Enterprise Sales Manager, **ABBYY**
@@ -90,31 +95,27 @@ Senior Enterprise Sales Manager, **ABBYY**
 ![38 Marlenewolfgruber 198X198](https://static1.abbyy.com/abbyycommedia/28977/38-marlenewolfgruber-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Dr. Marlene Wolfgruber
 
 Director of Product Marketing Mobile, **ABBYY**
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Übersicht
 
 In diesem Webinar dreht sich alles um die großen Handlungsfelder von Banken im „Post-Corona-Zeitalter“. Dr. Oliver Bohl, Direktor Digitale Kanäle bei der KfW Bankengruppe, spricht als direkt Betroffener über die Auswirkungen von COVID-19 auf Arbeitsprozesse und Kundenkommunikation im Bankensektor. Welche Chancen Ihnen der Einsatz von künstlicher Intelligenz, digitalisierten Prozessen und Cloudifizierung ermöglicht, das zeigen in diesem Webinar Matthias Abel von der DZ PRIVATBANK, Eberhard Rohe, Account Director bei Retarus, sowie Alexandre Janicki und Dr. Marlene Wolfgruber von ABBYY anhand von Praxisbeispielen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Das sind die Themen:
 
 * First-hand Lehren aus der Corona-Krise
@@ -123,25 +124,20 @@ In diesem Webinar dreht sich alles um die großen Handlungsfelder von Banken im 
 * Kunden-Onboarding und Identitätsprüfung einfach, schnell und rechtlich einwandfrei
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Webinar-Aufzeichnung hier anfordern
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -153,12 +149,6 @@ All personal information collected via this method is under full scope of all pr
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:
@@ -215,8 +205,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,4 +212,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-from-ordinary-to-extraordinary-the-roadmap-to-likes-on-tiktok-unboxes/"><u>[New] From Ordinary to Extraordinary The Roadmap to Likes on TikTok Unboxes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-lens-legends-cutting-edge-camera-choices-1-10/"><u>[Updated] In 2024, Lens Legends Cutting-Edge Camera Choices #1-10</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-free-mkv-makers-beta-access-top-sites-for-no-cost-dvd-conversion-and-streaming/"><u>1. Free MKV Makers' Beta Access: Top Sites for No-Cost DVD Conversion & Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/interweaving-your-digital-presence-link-accounts-through-xbox/"><u>Interweaving Your Digital Presence: Link Accounts Through Xbox</u></a></li>
+<li><a href="https://common-error.techidaily.com/master-the-art-of-fixing-touchscreens-in-windows-10-with-these-proven-techniques-5/"><u>Master the Art of Fixing Touchscreens in Windows 10 with These Proven Techniques [5]</u></a></li>
+<li><a href="https://discover-best.techidaily.com/seamlessly-combining-multiple-dvd-content-into-one-unified-disc/"><u>Seamlessly Combining Multiple DVD Content Into One Unified Disc</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/snapchat-story-crafting-harness-over-a-hundred-ideas-for-your-unique-narrative/"><u>Snapchat Story Crafting Harness over a Hundred Ideas for Your Unique Narrative</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-insider-guide-to-efficient-windows-10-usage/"><u>The Insider Guide to Efficient Windows 10 Usage</u></a></li>
+<li><a href="https://discover-best.techidaily.com/the-ultimate-guide-to-marvels-must-watch-movies-best-picks-from-2016-2022/"><u>The Ultimate Guide to Marvel's Must-Watch Movies: Best Picks From 2016-2022</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-classic-christmas-films-comprehensive-collection-free-download-spanning-centuries/"><u>Top Classic Christmas Films: Comprehensive Collection Free Download Spanning Centuries</u></a></li>
+<li><a href="https://discover-best.techidaily.com/understanding-the-distinctions-a-comprehensive-guide-on-mp4-vs-mov-file-formats/"><u>Understanding the Distinctions: A Comprehensive Guide on MP4 Vs. MOV File Formats</u></a></li>
+</ul></div>
 

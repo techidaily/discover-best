@@ -1,7 +1,7 @@
 ---
 title: Maîtriser Le Processus Métier Principal Chez Balfour Beatty Rail Avec ABBYY FineReader
-date: 2024-08-26T00:10:21.719Z
-updated: 2024-08-27T00:10:21.719Z
+date: 2024-09-29T05:19:53.892Z
+updated: 2024-10-05T19:08:32.407Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805175841dc09638ed49d803c3.jpg
@@ -19,11 +19,25 @@ Construction | PDF and Document Conversion | Document Processing
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Balfour Beatty Rail maîtrise son processus métier principal grâce à ABBYY FineReader
 
 Construction | Conversion de PDF et de documents 
 
 ![](https://static1.abbyy.com/abbyycommedia/14875/cs-balfour-556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Aperçu du client
 
@@ -82,6 +96,19 @@ ABBYY FineReader est un logiciel de reconnaissance optique des caractères (OCR)
 
 [![2-finereader](https://static1.abbyy.com/abbyycommedia/14345/2-finereader.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Dématérialisation des factures](https://tools.techidaily.com/abbyy/products/) 
@@ -89,6 +116,13 @@ ABBYY FineReader est un logiciel de reconnaissance optique des caractères (OCR)
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-balfour-360x162](https://static4.abbyy.com/abbyycommedia/14874/cs-balfour-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/10535/cs%5Fbalfourbeattyrail%5Ffr%5Ff.pdf "version PDF") [version PDF](https://static4.abbyy.com/abbyycommedia/10535/cs%5Fbalfourbeattyrail%5Ffr%5Ff.pdf "version PDF") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Accéder au document](https://static4.abbyy.com/abbyycommedia/10535/cs%5Fbalfourbeattyrail%5Ffr%5Ff.pdf "version PDF") 
 
@@ -100,10 +134,6 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.
@@ -116,8 +146,6 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -125,4 +153,26 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ransforming-live-youtube-broadcasts-into-recorded-soundtracks/"><u>[New] Transforming Live YouTube Broadcasts Into Recorded Soundtracks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>[Updated] 2024 Approved Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-easeus-screen-recorder-review/"><u>[Updated] 2024 Approved EaseUS Screen Recorder Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/design-mastery-building-an-mc-village-home-for-2024/"><u>Design Mastery Building an MC Village Home for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/experience-personalized-engagement-with-the-advanced-tech-of-cookiebot/"><u>Experience Personalized Engagement with the Advanced Tech of Cookiebot</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-gadgets-with-tom-in-depth-analysis-of-latest-pc-components/"><u>Exploring Gadgets with Tom: In-Depth Analysis of Latest PC Components</u></a></li>
+<li><a href="https://discover-best.techidaily.com/exploring-the-concept-of-a-digital-twin-insights-and-applications-by-abbyy/"><u>Exploring the Concept of a Digital Twin: Insights and Applications by ABBYY</u></a></li>
+<li><a href="https://discover-best.techidaily.com/exploring-the-depths-of-business-analytics-aabbyy-timeline-and-process-intelligence-mastery/"><u>Exploring the Depths of Business Analytics - AABBYY TimeLine and Process Intelligence Mastery</u></a></li>
+<li><a href="https://discover-best.techidaily.com/gdpr-compliant-data-protection-terms-enhanced-privacy-with-abbyys-cloud-services/"><u>GDPR Compliant Data Protection Terms – Enhanced Privacy with ABBYY's Cloud Services</u></a></li>
+<li><a href="https://discover-best.techidaily.com/groundbreaking-ai-accomplishment-abbyy-vantage-secures-the-2erry-2024-technology-award/"><u>Groundbreaking AI Accomplishment: ABBYY Vantage Secures the 2Erry 2024 Technology Award</u></a></li>
+<li><a href="https://discover-best.techidaily.com/groundbreaking-collaboration-abbyy-plus-blue-prism-introduce-advanced-automation-technologies/"><u>Groundbreaking Collaboration: ABBYY + Blue Prism Introduce Advanced Automation Technologies</u></a></li>
+<li><a href="https://discover-best.techidaily.com/international-ai-and-rpa-specialists-gather-at-the-abbyy-conference-during-the-2ndai-and-rpa-world-summit-berlin-2018/"><u>International AI and RPA Specialists Gather at the ABBYY Conference During the 2^Nd^AI & RPA World Summit, Berlin 2018</u></a></li>
+<li><a href="https://discover-best.techidaily.com/launch-of-advanced-ocr-solutions-by-abbyy-japan-in-partnership-with-sales-representatives-uniting-automated-japanese-character-transcription-and-handwritten2/"><u>Launch of Advanced OCR Solutions by ABBYY Japan in Partnership with Sales Representatives: Uniting Automated Japanese Character Transcription and Handwritten Text Recognition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/live-demonstration-of-abbyys-cutting-edge-ai-tools-unveiled-at-mobile-world-congress-in-barcelona-201/"><u>Live Demonstration of ABBYY's Cutting-Edge AI Tools Unveiled at Mobile World Congress in Barcelona, 201</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-networks-generating-social-media-sensations-for-2024/"><u>Navigating Networks Generating Social Media Sensations for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/smilesphere-explore-limitless-meme-landscapes/"><u>SmileSphere Explore Limitless Meme Landscapes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleash-speed-edit-windows-11-photos-like-a-pro/"><u>Unleash Speed Edit Windows 11 Photos Like a Pro</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unlock-filmora-for-free-legit-and-secure-download-options/"><u>Unlock Filmora for Free Legit and Secure Download Options</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlock-video-potential-with-top-titler-ai-for-2024/"><u>Unlock Video Potential with Top Titler AI for 2024</u></a></li>
+</ul></div>
 

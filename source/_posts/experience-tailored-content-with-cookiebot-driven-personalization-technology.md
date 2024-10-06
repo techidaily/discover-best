@@ -1,52 +1,22 @@
 ---
 title: Experience Tailored Content with Cookiebot-Driven Personalization Technology
-date: 2024-09-05T11:27:45.744Z
-updated: 2024-09-06T11:27:45.744Z
+date: 2024-10-04T01:16:17.326Z
+updated: 2024-10-05T20:44:27.058Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3ca7d54eab5f1d4007ba674c0.JPG
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Experience Tailored Content with Cookiebot-Driven Personalization Technology
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYオープンソース、NeoML、人工知能（AI）ソリューション開発のための機械学習ライブラリ
 
 6月16日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_このフレームワークにより、ソフトウェア開発者にデジタルトランスフォーメーション（DX）を促進するアプリケーション作成が可能になる、高性能ディープラーニングと従来の機械学習アルゴリズムを提供します。_**
 
   
@@ -91,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -100,4 +68,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unlock-the-potential-of-dslr-with-facebook-live-compatible-pcsmacs/"><u>[New] 2024 Approved Unlock the Potential of DSLR with Facebook LIVE, Compatible PCs/Macs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-elite-gamers-choice-top-4k-laptop-list-for-2024/"><u>[New] Elite Gamers' Choice Top 4K Laptop List for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-filmmaking-faceoff-hero-session-x-or-polaroid-cube/"><u>2024 Approved Filmmaking Faceoff Hero Session X or Polaroid Cube?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-11-high-quality-pc-audio-recording-devices-top-picks/"><u>Best 11 High-Quality PC Audio Recording Devices - Top Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-7-free-tools-for-editing-mkv-files-on-pc-and-mac-no-cost-options/"><u>Best 7 Free Tools for Editing MKV Files on PC & Mac - No Cost Options</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-methods-to-capture-your-steam-gaming-sessions-in-hd/"><u>Best Methods to Capture Your Steam Gaming Sessions in HD</u></a></li>
+<li><a href="https://discover-best.techidaily.com/copying-dvds-made-easy-a-step-by-step-guide-for-the-lego-movie/"><u>Copying DVDs Made Easy - A Step-by-Step Guide for 'The LEGO Movie'</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-tecno-spark-10-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Tecno Spark 10 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-to-craft-and-modify-iphone-motion-videos-reducing-pace-effectively/"><u>How to Craft & Modify iPhone Motion Videos Reducing Pace Effectively</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-compreehers-guide-to-srt-file-flexibility/"><u>In 2024, The Compreeher’s Guide to SRT File Flexibility</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/microsofts-print-to-pdf-glitches-and-solutions-for-windows-1011-users/"><u>Microsoft's Print to PDF Glitches and Solutions for Windows 10/11 Users</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

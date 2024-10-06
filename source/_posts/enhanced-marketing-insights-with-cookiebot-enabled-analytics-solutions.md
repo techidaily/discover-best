@@ -1,46 +1,22 @@
 ---
 title: Enhanced Marketing Insights with Cookiebot-Enabled Analytics Solutions
-date: 2024-09-05T11:27:43.875Z
-updated: 2024-09-06T11:27:43.875Z
+date: 2024-10-01T19:55:51.645Z
+updated: 2024-10-06T02:05:22.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c71ce8851536aefe75546ef7e7f6082e2261917107a95dfb8fa865056cdf9989.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced Marketing Insights with Cookiebot-Enabled Analytics Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY’s New FlexiCapture Platform Is Faster, More Powerful, and Runs Native in the Cloud
 
 September 27, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _The new version of the AI-powered intelligent capture platform with cloud delivery enables customers to start tomorrow._ 
   
 ABBYY, a global provider of content intelligence solutions and services, today announced the launch of ABBYY FlexiCapture 12 Release 2\. The updated enterprise capture platform offers dramatically improved performance and higher processing speeds, continuous improvement through deeply integrated machine learning, and a brand new native cloud delivery channel. This allows any organization pursuing a digital transformation strategy to reduce processing costs, improve accuracy, accelerate time-to-revenue, and strengthen their position in the market.
@@ -88,8 +64,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -97,4 +71,30 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-reversing-time-retracing-your-steps-for-lost-snaps-for-2024/"><u>[New] Reversing Time Retracing Your Steps for Lost Snaps for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-adding-snap-camera-to-teams-chats-for-2024/"><u>[Updated] Step-by-Step Adding Snap Camera to Teams Chats for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-turbo-tracker-fastest-image-browser-w10-for-2024/"><u>[Updated] Turbo Tracker - Fastest Image Browser W10 for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-asus-rog-phone-7-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Asus ROG Phone 7</u></a></li>
+<li><a href="https://discover-best.techidaily.com/experience-advanced-analytics-with-cookiebot-technology/"><u>Experience Advanced Analytics with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/fournissez-des-capacites-cognitives-aux-travailleurs-numeriques-avec-abbyy-vantage/"><u>Fournissez Des Capacités Cognitives Aux Travailleurs Numériques Avec ABBYY Vantage</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-top-8-collaborative-video-collage-apps-for-android-users-freepaid/"><u>In 2024, Top 8 Collaborative Video Collage Apps for Android Users (Free/Paid)</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leveraging-advanced-technology-for-social-good-abbyy-partners-with-forhumanity-to-foster-autonomous-ai-monitoring-systems/"><u>Leveraging Advanced Technology for Social Good: ABBYY Partners With ForHumanity to Foster Autonomous AI Monitoring Systems</u></a></li>
+<li><a href="https://discover-best.techidaily.com/m-files-enhances-auto-management-with-abbyys-ai-tech-for-advanced-information-control/"><u>M-Files Enhances Auto-Management with ABBYY's AI Tech for Advanced Information Control</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-list-of-free-video-hosting-sites-for-online-publishing/"><u>New The Ultimate List of Free Video Hosting Sites for Online Publishing</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,18 +1,12 @@
 ---
 title: Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip
-date: 2024-09-05T11:27:45.012Z
-updated: 2024-09-06T11:27:45.012Z
+date: 2024-09-29T22:08:04.877Z
+updated: 2024-10-06T03:07:42.475Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4509b58b3a9a19b95f97977ea395ec0191792aea55bdaf18f72a70f3772092da.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,12 +17,6 @@ September 25, 2020
 
 ![](https://static1.abbyy.com/abbyycommedia/29606/ios-14-чего-нового.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for Android, and Text Grabber for Android & iOS have been discontinued since September 2023\. You can learn more about that [here](https://tools.techidaily.com/abbyy/products/)._
 
 ---
@@ -43,30 +31,12 @@ Perhaps, it’s the main iOS 14 innovation. Previously you had to swipe right to
 
 Smart Stack is a part of new widgets. It’s a dynamic widget that displays relevant information for current conditions. For example, you’ll see the weather forecast in the morning, and today’s physical activity in the evening. Smart Stack can also be scrolled manually.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Compact Siri
 
 Before iOS 14, Siri opened in a fullscreen mode. Now Siri, as well as it’s text replies, will be displayed at the bottom of the screen. Other requests will be displayed at the top of the screen as a widget. You can still use Siri to work with our apps. For example, [open documents](https://tools.techidaily.com/abbyy/products/) in [FineScanner](https://go.onelink.me/0oMB/2b084a0a) or [open business cards](https://tools.techidaily.com/abbyy/products/) in [Business Card Reader](https://go.onelink.me/LuYz/ca107d7).
 
 ![iOS 14 Siri](https://static1.abbyy.com/abbyycommedia/29629/siri-ios14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Call Notifications
 
 Apple did what users wanted for years. You will no longer be interrupted by an incoming call. Instead of a fullscreen view, the incoming call will show up as a notification window at the top of your screen.
@@ -74,32 +44,28 @@ Apple did what users wanted for years. You will no longer be interrupted by an i
 ![Calls notification iOS 14](https://static1.abbyy.com/abbyycommedia/29626/звонки-ios14.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Updated Messages
 
 Slowly, but surely, Apple turns the Messages app into a great messenger. In iOS 14, you can pin chats, tag people in group chats, add a photo to group chats, and follow a chain of replies.
 
 ![Messages iOS 14](https://static1.abbyy.com/abbyycommedia/29628/сообщения-ios14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Improved Privacy
 
 You will now be notified if the app uses a camera or a microphone. In case the camera is active, the green dot will appear near a battery icon. If the microphone is turned on, the orange dot will appear. iPhone will also notify you if the app you’re using copies a text to the clipboard. 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Picture in Picture
 
@@ -108,17 +74,12 @@ One iOS 14 feature, Picture in Picture mode, migrated from iPadOS. You can now w
 ![Picture in picture iOS 14](https://static1.abbyy.com/abbyycommedia/29627/картинка-в-картинке-ios-14.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### App Library
 
 There’s a new way to sort your apps. All apps will be automatically added to specific folders according to their functionality. There will also be an additional folder for recently updated and installed apps.
@@ -126,17 +87,12 @@ There’s a new way to sort your apps. All apps will be automatically added to s
 ![app library iOS 14](https://static1.abbyy.com/abbyycommedia/29623/библиотека-приложений-ios14.jpg) The App Library screen will be the rightmost on your Home screen.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Third-party Apps by Default
 
 If you don’t like Safari or Apple Mail, no problem. iOS 14 allows you to set any other browser or the mail agent as a default app, for example, Chrome and Gmail.
@@ -148,14 +104,22 @@ App Clips feature eases the workflow on-the-go. You can run some apps even witho
 ![App Clips iOS 14](https://static1.abbyy.com/abbyycommedia/29624/блиц-приложения-ios14.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Emoji Search
 
 It will be easier to use emojis because you can now type an emotion or an object you’re looking for—no need to scroll through hundreds of emojis. 
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### AirPods
 
@@ -164,6 +128,13 @@ Happy owners of one of the most popular wireless headphones will find something 
 ### Is It Worth Updating to iOS 14?
 
 It’s hard to say, but most likely, yes. On the one hand, iOS 14 delivers a new user experience and features. It works fine on the old devices. On the other hand, the first iOS 14 version might have some bugs, but Apple usually fixes them quickly. Also, some developers might experience some problems with their apps so they can work unstably. In turn, we prepared [FineScanner](https://go.onelink.me/0oMB/2b084a0a), [Business Card Reader](https://go.onelink.me/LuYz/ca107d7), and [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c) for iOS 14, so they all work stable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Supported Devices
 
@@ -239,8 +210,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -248,4 +217,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-film-fanatics-dream-the-ultimate-list-of-free-movies-streaming-on-youtube-for-2024/"><u>[New] Film Fanatics' Dream – The Ultimate List of Free Movies Streaming on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[New] In 2024, Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-quick-method-retain-tweets-video-on-your-android-gadget/"><u>2024 Approved Quick Method Retain Tweets' Video on Your Android Gadget</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ampliar-y-revitalizar-fotos-en-alta-definicion-con-la-inteligencia-artificial-de-winxvideo/"><u>Ampliar Y Revitalizar Fotos en Alta Definición Con La Inteligencia Artificial De Winxvideo</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-kid-approved-drones-for-beginning-pilots/"><u>Best Kid-Approved Drones for Beginning Pilots</u></a></li>
+<li><a href="https://win11.techidaily.com/defining-fresh-default-for-windows-pdf-files/"><u>Defining Fresh Default for Windows PDF Files</u></a></li>
+<li><a href="https://discover-best.techidaily.com/discover-the-best-top-3-free-dvd-players-for-windows-11-your-ultimate-guide-to-dvd-compatibility-and-playback/"><u>Discover the Best Top 3 Free DVD Players for Windows 11 - Your Ultimate Guide to DVD Compatibility and Playback!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/dvd-9/"><u>DVD、動画、音声ファイルの完全マスタリング - 9ページ集約ガイドで学ぶ！</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mastering-video-extraction-a-comprehensive-guide-to-playing-vob-files-across-all-platforms-including-windows-11-and-mac/"><u>Mastering Video Extraction: A Comprehensive Guide to Playing VOB Files Across All Platforms Including Windows 11 and Mac</u></a></li>
+<li><a href="https://discover-best.techidaily.com/resolved-issue-alert-upgraded-to-handbrake-64-bit-vlc-still-not-in-compatible-mode/"><u>Resolved Issue Alert: Upgraded to Handbrake 64-Bit - VLC Still Not in Compatible Mode!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/scelta-di-screen-recorder-ideale-per-pc-windows-registrazione-full-screen-o-particolareggiata/"><u>Scelta Di Screen Recorder Ideale per PC Windows - Registrazione Full-Screen O Particolareggiata</u></a></li>
+<li><a href="https://discover-best.techidaily.com/soluzione-rapida-per-errori-hevc-non-supportati-in-windows-1087/"><u>Soluzione Rapida per Errori HEVC Non Supportati in Windows 10/8/7</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-video-walkthrough-enhancing-data-privacy-with-mac-drive-encryptiondecryption/"><u>Step-by-Step Video Walkthrough: Enhancing Data Privacy with Mac Drive Encryption/Decryption</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-why-amazon-prime-is-a-smart-choice/"><u>Understanding Why Amazon Prime Is a Smart Choice</u></a></li>
+<li><a href="https://win-blog.techidaily.com/wav-m4r-movavi/"><u>무료 WAV 파일을 M4R 형식으로 바꾸기 - 원재인터넷 속에서 사용할 수 있는 Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Billing System via ABBYY Partnership Streamlines Financial Tasks in Major Community Housing Organizations
-date: 2024-08-26T00:10:12.109Z
-updated: 2024-08-27T00:10:12.109Z
+date: 2024-10-03T22:52:31.762Z
+updated: 2024-10-05T21:16:23.055Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0132287bf7d51b07521a43a3870f625dc6e6364d7e4121c0d057d3f42a0a988f.jpg
@@ -25,9 +25,23 @@ Other | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/15276/cs-hendre-556x303-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Hendre Group](https://static2.abbyy.com/abbyycommedia/14694/hendre-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name                  | Hendre Group                                    |
 | --------------------- | ----------------------------------------------- |
@@ -39,6 +53,13 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![INVU](https://static1.abbyy.com/abbyycommedia/14443/invu_logo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name | INVU                                 |
 | ---- | ------------------------------------ |
@@ -92,6 +113,13 @@ Payment times have been slashed. The 4-6 weeks typical duration is now down to 2
 
 [![FlexiCapture](https://static4.abbyy.com/abbyycommedia/21381/07a-case-extra-product.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Accounts Payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
@@ -110,9 +138,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -125,8 +150,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +157,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/updated-strategies-for-hiring-superior-cinematographers/"><u>[Updated] Strategies for Hiring Superior Cinematographers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-vimeo-end-screen-how-to-add-end-screen-to-video-on-vimeo/"><u>2024 Approved Vimeo End Screen How to Add End Screen to Video on Vimeo?</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-itel-a60-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/bridging-languages-easily-using-chatgpts-advanced-technology/"><u>Bridging Languages Easily Using ChatGPT’s Advanced Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-proprietary-technology-enhanced-sites/"><u>Cookiebot Proprietary Technology Enhanced Sites</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-personalization/"><u>Cookiebot-Enabled Personalization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-user-experience-the-secret-ingredient-for-successful-online-presence/"><u>Cookiebot-Enhanced User Experience: The Secret Ingredient for Successful Online Presence</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhance-your-site-traffic-with-smart-seo-solutions/"><u>Cookiebot: Enhance Your Site Traffic with Smart SEO Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebots-dynamic-tracking-solutions-for-optimized-user-experience/"><u>Cookiebot's Dynamic Tracking Solutions for Optimized User Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/die-dynamik-zwischen-etl-and-elt-schlusselaspekte-fur-moderne-datenerfassung/"><u>Die Dynamik Zwischen ETL & ELT - Schlüsselaspekte Für Moderne Datenerfassung</u></a></li>
+<li><a href="https://discover-best.techidaily.com/drive-your-website-traffic-with-automated-conversion-tracking-the-power-of-cookiebot/"><u>Drive Your Website Traffic with Automated Conversion Tracking: The Power of Cookiebot</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driving-forward-with-teamwork-and-novel-approaches-in-the-insurance-industry/"><u>Driving Forward with Teamwork and Novel Approaches in the Insurance Industry</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-fixes-for-when-windows-11-wont-detect-your-usb-hardware/"><u>Easy Fixes for When Windows 11 Won't Detect Your USB Hardware</u></a></li>
+<li><a href="https://win11.techidaily.com/enabling-overlooked-windows-extras-a-step-by-step-manual/"><u>Enabling Overlooked Windows Extras: A Step-by-Step Manual</u></a></li>
+<li><a href="https://win-dash.techidaily.com/solved-fixing-the-usb-connection-issue-on-260ci-wi-fi-adapter/"><u>Solved: Fixing the USB Connection Issue on 260Ci Wi-Fi Adapter</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-revolutionary-role-of-ai-in-reshaping-todays-world/"><u>The Revolutionary Role of AI in Reshaping Today's World</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/thrilling-adventures-captured-pro-hero5-and-super-sj7-for-2024/"><u>Thrilling Adventures Captured Pro Hero5 & Super SJ7 for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Website's Performance and Engagement"
-date: 2024-09-05T11:27:45.389Z
-updated: 2024-09-06T11:27:45.389Z
+date: 2024-10-02T03:24:15.186Z
+updated: 2024-10-06T05:05:30.984Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3eac0a2d615e95926075c7419.jpg
@@ -11,12 +11,6 @@ thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3e
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Qu’est-ce que la Process Intelligence ?
 
 ###### Scott Opitz
@@ -36,27 +30,23 @@ Passer à :
 [Foire aux questions](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Qu’est-ce que la Process Intelligence ?
 
 **La Process intelligence est une combinaison de fonctionnalités reposant sur les données, dédiée à l’analyse et à l’amélioration des opérations de l’entreprise.** Elle utilise les données tirées des propres systèmes d’information de l’entreprise pour dévoiler des schémas et des renseignements qui indiquent la voie vers une nouvelle efficacité opérationnelle. **Les cinq piliers essentiels d’une process intelligence soutenable sont la découverte des processus (process discovery), l’analyse des processus (process analysis), le suivi des processus (process monitoring), la prédiction des résultats des processus (process prediction), et la simulation des processus (process simulation).**  Les entreprises peuvent utiliser ces renseignements pour découvrir, comprendre et gérer plus efficacement l’exécution de leurs processus.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Les cinq piliers de la process intelligence
 
 #### 1\. Découverte des processus (Process Discovery)
@@ -82,11 +72,12 @@ La Process prediction utilise les schémas historiques d’exécution pour entra
 La Process simulation fournit un mécanisme permettant d’utiliser l’historique des processus afin de configurer automatiquement une simulation. Ce modèle peut ensuite être ajusté pour voir quel impact aura un changement proposé sur un processus ou l’allocation d’une ressource, l’objectif étant de comprendre l’impact de ces changements avant qu’ils ne soient mis en œuvre. Par exemple, une banque peut utiliser cette approche pour comprendre l’impact d’une modification des effectifs sur le département d’approbation des prêts. Cela aide les dirigeants à prendre des décisions informées sur l’allocation des ressources et les modifications de processus, ce qui se traduit finalement par une efficacité opérationnelle et une satisfaction des clients optimisées.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Quels sont les avantages de la process intelligence ? 
 
 Les approches traditionnelles de l’amélioration des processus métier s’appuient sur des observations manuelles, des entretiens et des enquêtes, qui sont tous potentiellement subjectifs et chronophages. La Process intelligence accède aux données des propres systèmes de l’entreprise pour mener à bien l’optimisation des processus et automatiser leur suivi, ce qui permet une amélioration continue.
@@ -110,6 +101,13 @@ Dans tout secteur d’activité, incorporer la [process intelligence à la strat
 ### Santé
 
 Les hôpitaux et d’autres prestataires de santé peuvent tirer le meilleur parti de la process intelligence pour améliorer l’expérience des patients et l’efficacité clinique, maintenir les normes de qualité, et éviter les risques de conformité. Ils peuvent être plus facilement en conformité en suivant les opérations en temps réel, tout en alertant le personnel de manière proactive lorsque les protocoles ne sont pas respectés ou que des écarts dans la trajectoire du processus sont détectés.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Banque
 
@@ -135,12 +133,6 @@ Avant de l’automatiser, elle a utilisé des outils de process mining pour anal
 
 Après avoir mis en œuvre ces optimisations, l’entreprise a mis en place une solution d’automatisation intelligente des processus, comprenant des bots de RPA (automatisation robotisée des processus) pour la saisie et l’extraction des données, des algorithmes d’IA pour la prise de décision, l’automatisation des flux de travail pour orchestrer les processus de bout en bout et de outils de process intelligence pour suivre la performance du processus automatisé et identifier d’autres axes d’amélioration.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Approche holistique de la process intelligence
 
 Bien que de nombreux outils de process mining ou de task mining se vantent d’apporter une solution exhaustive, ils échouent souvent à répondre aux complexités et nuances des processus dans le monde réel. Une solution vraiment efficace doit s’appuyer pleinement sur les cinq piliers évoqués ci-dessus. Ce n’est qu’en adoptant cette approche holistique, couvrant tous ces aspects, que les organisations peuvent espérer réussir de façon significative et durable la transformation de leurs processus.
@@ -171,12 +163,6 @@ Pour réussir l’automatisation d’un processus, il faut d’abord le comprend
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -187,18 +173,6 @@ Ayant 30 ans d’expérience dans le secteur informatique, Scott a créé et dé
 
 Précédemment, Scott a également occupé les fonctions de Vice-Président Senior, Chargé du développement marketing & commercial de webMethods (aujourd’hui Software AG), où il était également responsable de la commercialisation, du développement commercial et de la planification stratégique pour les produits. Il a rejoint webMethods suite à son acquisition d’IntelliFrame Corporation, fournisseur de produits d’intégration des données, et du flux intégré InVista, ainsi que de la plateforme BPM qu’il a cofondée. Scott a également occupé de nombreuses fonctions de cadre dans la technologie, le marketing et le développement commercial, tant pour des entreprises publiques que privées. 
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Aimer, partager ou reposter 
 
 Partager 
@@ -253,8 +227,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -262,4 +234,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-videos-start-with-top-youtube-intro-tips-for-2024/"><u>[Updated] Elevate Your Video's Start with Top YouTube Intro Tips for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-editions-filmmaker-writers-on-windows/"><u>[Updated] Innovative Editions Filmmaker' Writers on WIndows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-reclaiming-deleted-posts-on-reddit-in-minutes/"><u>[Updated] Reclaiming Deleted Posts on Reddit in Minutes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ai60120/"><u>AI輸入修正程式：達成每秒60/120幀俐落流暢的影片過渡</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-meizu-21-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/battlefield-2042-secure-how-the-latest-fixes-enhance-fps-and-eliminate-stutter-for-pc-players/"><u>Battlefield 2042 SECURE: How the Latest Fixes Enhance FPS & Eliminate Stutter for PC Players</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-switching-netflix-languages-across-all-your-gadgets/"><u>Guide: Switching Netflix Languages Across All Your Gadgets</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On Apple iPhone 15?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-issues-and-crash-fixes-in-naraka-edge-of-night-gameplay/"><u>Resolved Issues and Crash Fixes in Naraka: Edge of Night Gameplay</u></a></li>
+<li><a href="https://discover-best.techidaily.com/spielt-die-xbox-one-noch-dvds-ab-detaillierte-anleitung-zur-reparatur-ihrer-konsole/"><u>Spielt Die Xbox One Noch DVDs Ab? Detaillierte Anleitung Zur Reparatur Ihrer Konsole</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-strategies-for-smoother-play-reducing-lag-and-improving-frame-rate-in-genshin-impact-2024-edition/"><u>Step-by-Step Strategies for Smoother Play: Reducing Lag & Improving Frame Rate in Genshin Impact - 2024 Edition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transformacion-definitiva-del-avi-al-mkv-tutoriales-detallados-para-la-conversion-perfecta/"><u>Transformación Definitiva Del AVI Al MKV: Tutoriales Detallados Para La Conversión Perfecta</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transformez-vos-videos-wmv-en-mp4-sans-perturber-leur-quality-solution-avancee-a-98-defficacite/"><u>Transformez Vos Vidéos WMV en MP4 Sans Perturber Leur Quality : Solution Avancée À 98% D'Efficacité</u></a></li>
+<li><a href="https://discover-best.techidaily.com/windows-10x-troubleshooting-fixes-and-solutions-for-common-issues/"><u>Windows 10X Troubleshooting: Fixes and Solutions for Common Issues</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725286483268-winx-dvd-author/"><u>WinX DVD Authorリスクを理解する：このツールの信用度と使用法に関する詳細解説</u></a></li>
+<li><a href="https://discover-best.techidaily.com/kinki-kidsking-and-prince/"><u>ジャニーズ系アーティストのライブ映像ダウンロードガイド: KinKi Kids、King & Prince含む最新手法</u></a></li>
+</ul></div>
 

@@ -1,28 +1,16 @@
 ---
 title: "Cookiebot: Revolutionizing Personalization and Retargeting in Web Marketing"
-date: 2024-09-05T11:27:45.424Z
-updated: 2024-09-06T11:27:45.424Z
+date: 2024-10-02T23:37:12.864Z
+updated: 2024-10-05T17:55:04.894Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot: Revolutionizing Personalization and Retargeting in Web Marketing
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## “What the Hell Is a Map Book!?”- and what does it have to do with the rise of Process Intelligence?
 
 ###### Joe Rayfield
@@ -31,12 +19,6 @@ August 08, 2019
 
 ![What is a map book and how is it related to process intelligence? | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25366/10809_smm_blog_what-the-hell-is-a-map-bookblog.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_Digital technologies are evolving at a furious pace and our business strategies are lagging behind. We need a new approach to processes for the digital age._**
 
 Recently in a discussion with my wife, I attempted to explain why ABBYY acquired TimelinePI – and I somehow ended up telling a long and elaborate story about how I was the best map book reader in my family. I regaled her with my stories of travelling all around the south of England trying to find multiple football (or soccer as my US friends and colleagues call it) grounds with my Dad in our Volvo Estate, continuously getting thwarted by traffic, roadworks, and getting lost through out-of-date map books.
@@ -65,20 +47,15 @@ With the risk of sounding like a scratched record, throw away the “map books�
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Joe Rayfield
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -133,8 +110,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +117,17 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-picks-of-screen-recording-applications-for-modern-windows-users-for-2024/"><u>[Updated] Top Picks of Screen Recording Applications for Modern Windows Users for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/acceso-gratuito-al-codec-hevc-h265-reproduccion-facil-y-sin-costo-de-peliculas-4k8k/"><u>Acceso Gratuito Al Códec HEVC (H.265) - Reproducción Fácil Y Sin Costo De Películas 4K/8K</u></a></li>
+<li><a href="https://techtrends.techidaily.com/can-you-access-instagram-direct-messages-a-guide-on-using-it-without-an-ig-profile/"><u>Can You Access Instagram Direct Messages? A Guide on Using It without an IG Profile</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/efficient-techniques-for-capturing-macos-content/"><u>Efficient Techniques for Capturing macOS Content</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-vsco-for-visual-impact-in-media/"><u>Navigating VSCO for Visual Impact in Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/revitalize-your-shots-10-cost-free-expandable-with-additional-luts/"><u>Revitalize Your Shots 10 Cost-Free, Expandable With Additional LUTs</u></a></li>
+<li><a href="https://discover-best.techidaily.com/step-by-step-guide-accessing-and-viewing-heic-images-on-windows-10-and-11-computers/"><u>Step-by-Step Guide: Accessing and Viewing HEIC Images on Windows 10 & 11 Computers</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-13-strategies-transforming-your-dvds-vob-content-into-high-quality-mp4-on-pc-and-mac-systems/"><u>Top 13 Strategies: Transforming Your DVD's VOB Content Into High-Quality MP4 on PC and Mac Systems</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transform-your-videos-a-comprehensive-guide-to-convert-mpeg-to-mp4-in-just-9-steps-on-pcs-and-macs/"><u>Transform Your Videos: A Comprehensive Guide to Convert MPEG to MP4 in Just 9 Steps on PCs and Macs</u></a></li>
+</ul></div>
 

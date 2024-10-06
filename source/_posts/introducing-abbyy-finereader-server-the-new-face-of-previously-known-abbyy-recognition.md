@@ -1,46 +1,22 @@
 ---
 title: Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition
-date: 2024-09-05T11:27:44.939Z
-updated: 2024-09-06T11:27:44.939Z
+date: 2024-10-01T17:26:21.651Z
+updated: 2024-10-05T16:05:48.921Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d998ed1ce4fa21b446a75f0e6c9a8cf84aeb11cbd732d7f1223ebbfd05a07e14.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Recognition Server Rebrands as ABBYY FineReader Server and Gets a Major Update
 
 November 06, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _The server-based OCR service joins the FineReader product family to consolidate ABBYY’s top-of-the-line document capture and PDF conversion products and solutions under one umbrella._
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY®, a global provider of content intelligence solutions and services, today announced the rebranding of its most powerful server-based optical character recognition service ABBYY Recognition Server as ABBYY FineReader Server. The step aims to further consolidate all ABBYY OCR and PDF conversion offering under the FineReader brand making it easier for customers and partners to find a suitable solution in the company’s comprehensive product portfolio.
@@ -82,8 +58,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +65,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-capture-phone-gaming-moments-on-samsung-devices/"><u>[New] 2024 Approved Capture Phone Gaming Moments on Samsung Devices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-delve-into-youtube-metrics-using-the-power-of-social-blade/"><u>[New] 2024 Approved Delve Into YouTube Metrics Using the Power of Social Blade</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-rhythm-of-motivation-discover-the-most-inspiring-exercinasaurus-rex-songs/"><u>[New] Rhythm of Motivation Discover the Most Inspiring Exercinasaurus Rex Songs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-captioning-for-social-video-content-from-snapchat-to-igtv/"><u>2024 Approved Captioning for Social Video Content From Snapchat to IGTV</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-how-to-see-every-participant-in-google-meet/"><u>2024 Approved How to See Every Participant in Google Meet?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/gpuwinx/"><u>高效GPU增速：WinX高清視頻轉換精選版 - 提升視訊品質、大小調節和編輯功能</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/analyzing-the-reasons-for-increased-security-breaches-on-chatgpt-accounts/"><u>Analyzing the Reasons for Increased Security Breaches on ChatGPT Accounts</u></a></li>
+<li><a href="https://discover-best.techidaily.com/come-upload-a-dvd-on-google-drive-successfully-guided-tutorial/"><u>Come Upload a DVD on Google Drive - Successfully Guided Tutorial</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-guide-to-acquiring-and-installing-corsair-k70-softwaredrivers-for-your-pc/"><u>Easy Guide to Acquiring and Installing Corsair K70 Software/Drivers for Your PC</u></a></li>
+<li><a href="https://discover-best.techidaily.com/expert-online-assistance-troubleshoot-and-optimize-winx-dvd-ripper-and-video-converter/"><u>Expert Online Assistance: Troubleshoot & Optimize WinX DVD Ripper & Video Converter</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guida-essenziale-allefficiente-codifica-dei-video-mp4-in-questo-anno-strategie-e-consigli-del-2023/"><u>Guida Essenziale All'Efficiente Codifica Dei Video MP4 in Questo Anno: Strategie E Consigli Del 2023</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hassle-free-device-drivers-seamless-updates-on-any-windowed-system/"><u>Hassle-Free Device Drivers: Seamless Updates on Any Windowed System</u></a></li>
+<li><a href="https://discover-best.techidaily.com/how-does-google-photos-adjust-video-quality-during-compression/"><u>How Does Google Photos Adjust Video Quality During Compression?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ifunbox-ifunbox/"><u>IFunBox 初学者ガイド: IFunBoxを利用する最新手順とトラブルシューティング</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-facebook-connection-essentials-for-2024/"><u>Insta-Facebook Connection Essentials for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/logiciels-de-conversion-video-et-dvd-specialises-par-digiarty/"><u>Logiciels De Conversion Vidéo Et DVD Spécialisés Par Digiarty</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/new-twitter-scam-meta-verified-launches-and-chatgpt-4-explained/"><u>New Twitter Scam, Meta Verified Launches, and ChatGPT-4 Explained</u></a></li>
+<li><a href="https://discover-best.techidaily.com/sichern-sie-ihre-filmdatenbank-mit-der-amazon-cloud-hoch-schnell-und-einfach/"><u>Sichern Sie Ihre Filmdatenbank Mit Der Amazon Cloud Hoch – Schnell Und Einfach</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-rated-instagram-video-editor-transform-your-videos-perfectly/"><u>Top Rated Instagram Video Editor: Transform Your Videos Perfectly</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

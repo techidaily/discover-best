@@ -1,7 +1,7 @@
 ---
 title: "Efficiency Revolutionized: ABBYY Solutions Transform Key Procedures at Banque Populaire De L’Ouest, Announces Newsroom"
-date: 2024-08-26T00:10:07.809Z
-updated: 2024-08-27T00:10:07.809Z
+date: 2024-10-03T20:41:57.495Z
+updated: 2024-10-06T03:25:16.905Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/55eea1dea20c971ad29aa0a8be4aa55c4b1ce451943a850955e0879da3d83a3f.jpg
@@ -33,6 +33,13 @@ Prior to implementing the solution the bank received all documents in paper form
 
 To learn more, please visit: [www.abbyy.com/flexicapture/](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY UK is a member of the ABBYY Group and supports sales and marketing activities in Western Europe. ABBYY is a leading provider of document recognition, data capture, and linguistic technologies and services. Its products include the ABBYY FineReader line of optical character recognition (OCR) applications, ABBYY FlexiCapture line of data capture solutions, and development tools. ABBYY offers Professional Services to help customers implementing business solutions based on ABBYY’s products. Paper-intensive organisations from all over the world use ABBYY solutions to automate time- and labour-consuming tasks and to streamline business processes. ABBYY products are used in large-scale government projects such as those of Australian Taxation Office, Lithuanian Tax Inspectorate, Ministry of Education of Russia, Ministry of Education of Ukraine, Montgomery County Government of the USA and the Government of Canada. Companies that license ABBYY technologies include BancTec, Canon, EMC/Captiva, Hewlett-Packard, KnowledgeLake, Microsoft, NewSoft, Notable Solutions, Samsung Electronics and more. ABBYY OCR applications are shipped with equipment from the world’s top manufacturers such as Epson, Fujitsu, Fuji Xerox, Microtek, Panasonic, PFU, Plustek, Ricoh, Toshiba, and Xerox. ABBYY is an international company with offices in Germany, the UK, France, Spain, Ukraine, Cyprus, Russia, the United States, Canada, Australia, Japan and Taiwan. For more information, visit [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
@@ -40,8 +47,12 @@ ABBYY UK is a member of the ABBYY Group and supports sales and marketing activit
 _ABBYY, the ABBYY Logo and ABBYY FineReader are either registered trademarks or trademarks of ABBYY Software Ltd. Texthelp, and Snapverter are trademarks or registered trademarks of Texthelp Limited. Google and Chrome are registered trademarks of Google Inc. Microsoft is a registered trademark of Microsoft Corporation in the United States and/or other countries. Bookshare is a registered trademark of Beneficient Technology Inc. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognised._ 
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### For more information, please contact:
 
 ABBYY Europe GmbH
@@ -57,8 +68,12 @@ E-Mail: press\_eu@abbyy.com
 Web: [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### About ADOC Solutions
 
 ADOC Solutions offers its clients comprehensive expertise in document management and digitisation solutions:
@@ -79,8 +94,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,4 +101,17 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-finns-fiscal-flow-income-insights-from-youtube-icon-for-2024/"><u>[Updated] Finn's Fiscal Flow Income Insights From YouTube Icon for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-vivo-y100t-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Vivo Y100t by Name | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-imessage-troubleshooting-how-to-correctly-reconnect-your-account-after-a-disconnection/"><u>IPhone iMessage Troubleshooting: How to Correctly Reconnect Your Account After a Disconnection</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-finance-with-customized-solutions-the-role-of-automation-in-modern-banking-practices/"><u>Revolutionizing Finance with Customized Solutions: The Role of Automation in Modern Banking Practices</u></a></li>
+<li><a href="https://win-special.techidaily.com/step-by-step-guide-downloading-video-content-from-sharptrades/"><u>Step-by-Step Guide: Downloading Video Content From SharpTrades</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-insights-from-the-2018-mobile-world-congress-exploring-abbyys-perspective/"><u>Top Insights From the 2018 Mobile World Congress: Exploring ABBYY's Perspective</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transforming-logistics-management-industry-leaders-achieve-greater-efficiency-with-abbyy-automatic-document-recognition-solutions/"><u>Transforming Logistics Management: Industry Leaders Achieve Greater Efficiency with ABBYY Automatic Document Recognition Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ulf-persson-ceo-of-abbyy-group-issues-official-covid-19-response-statement/"><u>Ulf Persson, CEO of ABBYY Group, Issues Official COVID-19 Response Statement</u></a></li>
+</ul></div>
 

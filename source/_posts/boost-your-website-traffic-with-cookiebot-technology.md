@@ -1,7 +1,7 @@
 ---
 title: Boost Your Website Traffic with Cookiebot Technology
-date: 2024-08-26T00:11:13.302Z
-updated: 2024-08-27T00:11:13.302Z
+date: 2024-10-05T02:50:12.857Z
+updated: 2024-10-06T02:19:15.792Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/425081092e1a679d02f1bd0f9b8040f12a7c3e9a90f0ca40e490e9a1586e5331.jpg
@@ -19,6 +19,13 @@ Education & Science | PDF and Document Conversion
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## University of Southampton Improves Access to its Collection by Digitising Vast Quantities of Printed Material
 
 [View or download a printable version of this article (PDF 430 kb)](https://static5.abbyy.com/abbyycommedia/16443/case-study-southampton-education-en.pdf) 
@@ -27,9 +34,6 @@ The University of Southampton Library supports a community of approximately 35,0
 
 ABBYY FineReader, a software product designed for ad-hoc scanning and digitisation, had been used by the Library for a number of years to digitise small numbers of pages, and occasionally full books, with the addition of text recognition or OCR (optical character recognition). The Library quickly realised however that in order to automate the OCR process with a high throughput and achieve their goal of digitising half a million pages per year, they would need a more robust product capable of automatically processing large volumes of documents. 
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution
 
 In order to find a solution to process printed documents into searchable formats, such as PDF and PDF/A for digitising archives or records creation, the Library evaluated various options on the market. They examined the following criteria across a number of products: Speed and quality of OCR, range of output formats and compressions, and API/workflow integration possibility. After looking at a number of products the Library selected ABBYY Recognition Server as a best-fit solution.
@@ -45,8 +49,12 @@ Digitisation of 18th century Parliamentary Papers: Coverage includes the Journal
 Digitisation of 19th century pamphlets: Over 23,000 19th century pamphlets from UK research libraries that cover the socio-political and economic landscape in Britain were digitised by the LDU and converted into searchable PDFs. Project details and catalogue entry is available at: [www.britishpamphlets.org.uk](http://www.britishpamphlets.org.uk/)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Other in-house projects include:
 
 Digitisation of Doctoral Theses: Scanned copies of 20,000 University of Southampton awarded theses were converted to searchable PDFs and are now being made available through the university’s institutional research repository, Eprints Soton. Eprints Soton contains electronic copies of research output, including journal articles, book chapters, conference papers and theses. It also includes unpublished manuscripts and papers. The full text of many of these items is freely available to be used in accordance with copyright and end-user permissions. [eprints.soton.ac.uk](http://eprints.soton.ac.uk/)
@@ -58,8 +66,12 @@ Digitisation of Course Texts: The Library converts printed items into searchable
 The Richard Rutt Collection: A collection of 19th century knitting books from the Winchester School of Art Reference Library have been digitised and made available as searchable PDFs via the web. [www.southampton.ac.uk/library/](http://www.southampton.ac.uk/library/) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 A powerful and accurate OCR is an integral component of the Library Digitisation Unit’s activities. Thanks to the increased throughput offered by ABBYY Recognition Server, Library staff are freed from the tedious work of manual OCR and millions of pages of documents from the University of Southampton’s collection are available online in digital formats to its students and to the wider world.
@@ -75,8 +87,12 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu).
 Share 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -89,8 +105,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,4 +112,23 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-turning-fans-into-followers-friends-and-profits/"><u>[New] Turning Fans Into Followers, Friends, and Profits</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-smartphone-photographers-guide-to-top-5-android-editors/"><u>[Updated] Smartphone Photographers' Guide to Top 5 Android Editors</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mp4avihevc/"><u>【優秀無料版】評価された動画変換プログラム － MP4、AVI、HEVCコンバーター集合リスト</u></a></li>
+<li><a href="https://discover-best.techidaily.com/access-the-latest-in-video-compression-enjoy-cutting-edge-av1-codec-for-both-hardware-and-software-systems-today/"><u>Access the Latest in Video Compression: Enjoy Cutting-Edge AV1 Codec for Both Hardware and Software Systems Today</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ai60120/"><u>AI輸入修正程式：達成每秒60/120幀俐落流暢的影片過渡</u></a></li>
+<li><a href="https://games-able.techidaily.com/graphics-card-price-surge-what-to-anticipate/"><u>Graphics Card Price Surge - What to Anticipate?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-pour-corriger-la-distorsion-video-causee-par-handbrake-lors-de-limportation-de-dvd-sous-windows-10/"><u>Guide Pour Corriger La Distorsion Video Causée Par HandBrake Lors De L’Importation De DVD Sous Windows 10</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/safe-and-reliable-your-guide-to-downloading-sades-headset-drivers-compatible-with-all-windows-versions/"><u>Safe and Reliable - Your Guide to Downloading Sades Headset Drivers Compatible with All Windows Versions</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solving-windows-11-display-backwardness/"><u>Solving Windows 11 Display Backwardness</u></a></li>
+<li><a href="https://discover-best.techidaily.com/step-by-step-tutorial-for-deleting-all-photograph-albums-from-older-iphone-versions-including-the-iphone-15/"><u>Step-by-Step Tutorial for Deleting All Photograph Albums From Older iPhone Versions Including the iPhone 15</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-essential-guide-to-computer-gear-by-tech-authority-toms-hardware/"><u>The Essential Guide to Computer Gear by Tech Authority, Tom's Hardware</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-presents-for-young-players-gaming-systems-and-extras/"><u>Top Presents for Young Players: Gaming Systems and Extras</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-zte-axon-40-lite-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends ZTE Axon 40 Lite without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-tips.techidaily.com/ultimate-guide-to-transforming-videos-into-stunning-169-widescreen-format/"><u>Ultimate Guide to Transforming Videos Into Stunning 16:9 Widescreen Format</u></a></li>
+<li><a href="https://discover-best.techidaily.com/windows-10x-troubleshooting-fixes-and-solutions-for-common-issues/"><u>Windows 10X Troubleshooting: Fixes and Solutions for Common Issues</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winx-mobile-video-converter-androidmkv-m2ts-avi-wmv/"><u>WinX Mobile Video Converter使用: AndroidデバイスへのMKV, M2TS, AVI, WMV動画変換ガイド</u></a></li>
+</ul></div>
 

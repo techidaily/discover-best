@@ -1,7 +1,7 @@
 ---
 title: "Embracing Artificial Intelligence: How 2Cuiry's Experts Predict Its Rise This Year"
-date: 2024-08-26T00:10:09.987Z
-updated: 2024-08-27T00:10:09.987Z
+date: 2024-09-28T16:02:48.922Z
+updated: 2024-10-05T16:59:48.505Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aa827fc3b79814207754c42d6a6a4c83088ec414afa88e6a5b8f7881f823fc3c.jpg
@@ -73,6 +73,13 @@ Neil Murphy is Vice President, Global Channel Chief and in his role now responsi
 
 Over the years, Neil has worked with a variety of industry sectors ranging from Finance, Insurance, Healthcare to Government focusing on transforming their legacy approach to back and front office processes such as Accounts Payable, customer onboarding, and consumer loyalty programmes to name a few.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -127,8 +134,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,7 +141,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-social-media-sensations-tiktoks-top-10-tweets/"><u>[New] Social Media Sensations TikTok's Top 10 Tweets</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-leading-10-lenses-revolutionizing-photography-for-2024/"><u>[Updated] Leading 10 Lenses Revolutionizing Photography for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-decoding-various-types-of-motion-sensors/"><u>2024 Approved Decoding Various Types of Motion Sensors</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyy-and-sigma-software-distribution-forge-a-wider-alliance-to-enhance-global-reach/"><u>ABBYY and Sigma Software Distribution Forge a Wider Alliance to Enhance Global Reach</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyy-finereader-pro-14-transforming-office-efficiency-in-managing-documents/"><u>ABBYY FineReader Pro 14 - Transforming Office Efficiency in Managing Documents</u></a></li>
+<li><a href="https://discover-best.techidaily.com/abbyyai-abbyy/"><u>ABBYYのAI駆使したドキュメント管理解決策:学習型自動レイアウトと情報抜き出し - ABBYYブログ</u></a></li>
+<li><a href="https://discover-best.techidaily.com/anubhav-saxena-visionary-director-at-the-helm-of-abbyys-executive-structure/"><u>Anubhav Saxena: Visionary Director at the Helm of ABBYY's Executive Structure</u></a></li>
+<li><a href="https://discover-best.techidaily.com/automated-user-tracking-with-the-help-of-cookiebot-technology/"><u>Automated User Tracking with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-website-analytics-with-cookiebots-advanced-behavioral-recording-tools/"><u>Boost Website Analytics with Cookiebot's Advanced Behavioral Recording Tools</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-your-site-with-cookiebot-technology-experience-next-level-analytics-and-conversion-optimization/"><u>Boost Your Site with Cookiebot Technology – Experience Next-Level Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://discover-best.techidaily.com/charting-success-in-document-processing-how-siemens-global-business-services-embraces-intelligent-automation-with-advice-from-abbyy-professionals/"><u>Charting Success in Document Processing: How Siemens Global Business Services Embraces Intelligent Automation with Advice From ABBYY Professionals</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-driven-analytics-and-conversion-optimization/"><u>Cookiebot-Driven Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-tecno-camon-20-premier-5g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Tecno Camon 20 Premier 5G.</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-asrock-ab350-pro4-driver-update-now-quick-and-free-download-for-windows-users/"><u>Get Your ASRock AB350 Pro4 Driver Update Now: Quick & Free Download for Windows Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208042311-how-to-restore-mic-functionality-on-your-steelseries-arctis-5-headset-easy-fix-tips-for-gamers/"><u>How to Restore Mic Functionality on Your SteelSeries Arctis 5 Headset - Easy Fix Tips for Gamers.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-11-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On iPhone 11?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-innovative-strategies-for-logging-overwatch-skirmishes/"><u>In 2024, Innovative Strategies for Logging Overwatch Skirmishes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-complete-indiana-jones-movie-saga-how-to-experience-it-as-intended/"><u>The Complete Indiana Jones Movie Saga: How to Experience It as Intended.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-14-plus-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 14 Plus</u></a></li>
+</ul></div>
 

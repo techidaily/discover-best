@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics and User Tracking"
-date: 2024-08-26T00:10:44.752Z
-updated: 2024-08-27T00:10:44.752Z
+date: 2024-10-02T01:17:45.284Z
+updated: 2024-10-06T03:47:52.533Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b704b313fd2f69558ac117bb.png
@@ -62,41 +62,57 @@ What BI cannot tell you, at least without a huge amount of custom development an
 
 For instance, can you determine if instances where certain salespersons received the highest number of orders coincided with efficient customer interactions where inquiries were promptly addressed; and conversely, can you determine if low order rates correlated to slow response times or potentially overlooked customer inquiries, ignoring the attempt completely? This is where BI falls short as it’s unable to establish and reveal those connections.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Key differences between process intelligence and business intelligence
 
 ### Focus
 
 **Process intelligence** focuses on the analysis and optimization of business processes, looking at the entire process lifecycle. **Business intelligence** focuses on providing in-depth analysis of individual process steps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Data sources
 
 **Process intelligence** uses event logs, audit tables, user interactions, and desktop activities as primary data sources. **Business intelligence** uses data from various sources related to a specific step/portion of a business process in order to analyze and visualize patterns, trends, and anomalies.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Outcomes
 
 **Process intelligence** provides insights that help organizations optimize their business processes, offering greater understanding of the global context of specific steps and variations between process instances. **Business intelligence** provides insights that help organizations make informed, data-driven decisions.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### Tools
 
 **Process intelligence** tools include process mining, task mining, analytics, monitoring, prediction, and simulation capabilities. **Business intelligence** tools typically include dashboards, reports, data analysis, and other visualization capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Key similarities between process intelligence and business intelligence
 
 Process intelligence and business intelligence do have similarities: both use organizational data to visually represent insights that support business management, analyzation, and decision-making processes. The same data warehouses may be leveraged in both process intelligence and BI tools, however the insights provided will vary depending on each platform's capabilities and limitations. This knowledge is fundamental for first-year business school students and professionals alike, as it forms the foundation for [making informed decisions and optimizing business operations](https://tools.techidaily.com/abbyy/products/) in a data-driven world.
 
 ![Process Intelligence vs Business Intelligence: Similarities and Differences in a Venn Diagram](https://static1.abbyy.com/abbyycommedia/37778/process-intelligence-and-business-intelligence-differences-and-similarities.png)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Process intelligence and business intelligence: Which is best?
 
@@ -110,9 +126,6 @@ It is important for those new to process intelligence and process mining to unde
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -123,9 +136,6 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -180,8 +190,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +197,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-10-preferred-online-photo-background-swappers/"><u>[New] 10 Preferred Online Photo Background Swappers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ommanding-the-screen-top-10-women-gamers-yt/"><u>[New] Commanding the Screen Top 10 Women Gamers YT</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-streamlined-recording-experience-with-macbooks-webcam/"><u>[New] Streamlined Recording Experience with MacBook's Webcam</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-23-budget-friendly-methods-document-webinars-with-no-cost/"><u>[Updated] 2024 Approved 23 Budget-Friendly Methods Document Webinars with No Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieving-content-balance-a-thorough-exploration-of-yt-aspect-ratios/"><u>[Updated] 2024 Approved Achieving Content Balance A Thorough Exploration of YT Aspect Ratios</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-secrets-to-maximizing-youtube-traffic-with-optimized-metadata/"><u>[Updated] Secrets to Maximizing YouTube Traffic with Optimized Metadata</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/dvdmac-and-windows/"><u>対症療法: ドルビーシャインクDVDストレッチエラーに悩むMac & Windowsユーザーへの解決策とテクニック</u></a></li>
+<li><a href="https://discover-best.techidaily.com/affordable-and-sustainable-in-depth-review-of-skullcandys-40-eco-buds-and-acoustic-performance/"><u>Affordable & Sustainable: In-Depth Review of Skullcandy's $40 Eco Buds and Acoustic Performance</u></a></li>
+<li><a href="https://discover-best.techidaily.com/autonomous-ergochair-curve-assessment-decent-desk-seat-with-comfort-room-for-improvement/"><u>Autonomous ErgoChair Curve Assessment - Decent Desk Seat with Comfort Room for Improvement</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722876392027-discover-the-most-intriguing-secrets-of-emojis-a-list-of-unexpected-findings/"><u>Discover the Most Intriguing Secrets of Emojis: A List of Unexpected Findings</u></a></li>
+<li><a href="https://discover-best.techidaily.com/discovering-a-new-era-in-digital-publishing-with-onyx-boox-palma-the-book-worlds-answer-to-the-ipod-phenomenon/"><u>Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon</u></a></li>
+<li><a href="https://discover-best.techidaily.com/efficiently-tidy-your-space-with-xpower-a-2-electric-air-blaster-a-comprehensive-review/"><u>Efficiently Tidy Your Space with XPOWER A-2 Electric Air Blaster - A Comprehensive Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-y200e-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo Y200e 5G</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-rated-mobile-device-of-the-year-2017-choosing-the-perfect-smartphone/"><u>Top Rated Mobile Device of the Year 2017: Choosing the Perfect Smartphone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-rated-tools-for-crafting-personalized-music-playlists-the-ultimate-list/"><u>Top Rated Tools for Crafting Personalized Music Playlists: The Ultimate List!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1724766327391-mp4/"><u>アビーユットライティング導入マスタークラス：ダウンロード、セットアップ、カメラワーク指南、MP4出力方法</u></a></li>
+</ul></div>
 

@@ -1,54 +1,24 @@
 ---
 title: Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration
-date: 2024-09-05T11:27:44.958Z
-updated: 2024-09-06T11:27:44.958Z
+date: 2024-10-03T03:40:02.911Z
+updated: 2024-10-05T20:54:05.916Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49542887406f9b6531aa186a8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Deloitte Luxembourg and ABBYY partner to help clients automate their business processes
 
 March 23, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Deloitte Luxembourg and intelligent automation company ABBYY have entered into a [partnership](https://tools.techidaily.com/abbyy/products/) that will help their clients accelerate business processes and increase profitability. The company will offer ABBYY’s intelligent document processing (IDP) solution to clients bringing together the best NLP, machine learning, and advanced recognition capabilities.
 
 ABBYY offers the most advanced intelligent process automation solutions for the enterprise market. ABBYY's IDP solutions provide not only high-quality text and image recognition, but also a document conversion technology that seamlessly integrate into all major intelligent automation platforms. The platform handles every type of document, from simple forms to complex free-form documents, and every job size, from ad hoc single documents to large batch jobs requiring tough service level agreements (SLAs). This way, ABBYY helps companies gain insight into all the data they hold including both structured information, such as reports, and unstructured information, such as e-mails.
@@ -67,9 +37,23 @@ ABBYY was recognized by Everest Group, a leading consulting and research firm, a
 
 \[1\] IDC, European Intelligent Process Automation Software Forecast, 2020-2024, Doc #EUR147055020, December 2020.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About Deloitte Luxembourg
 
 With more than 130 partners and 2,300 employees, Deloitte Luxembourg is one of the Grand Duchy's largest, strongest and oldest professional services firms. For more than 70 years, its talented teams have been serving clients in various industries delivering high added-value offerings to national and international clients in audit and assurance, consulting, financial advisory, risk advisory, tax, and related services. Deloitte Luxembourg is part of the global Deloitte network that is represented in more than 150 countries and territories and serves four out of five Fortune Global 500® companies. Learn how Deloitte’s people make an impact that matters at [www.deloitte.com/lu](http://www.deloitte.com/lu).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### About ABBYY
 
@@ -82,33 +66,23 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -124,8 +98,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -133,4 +105,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevating-brand-presence-a-guide-to-influencer-marketing-on-instagram/"><u>[New] 2024 Approved Elevating Brand Presence A Guide to Influencer Marketing on Instagram</u></a></li>
+<li><a href="https://discover-best.techidaily.com/202-5/"><u>未來免費錄影奧殼，探索202지 前5名將會是什麼？</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-google-pixel-8-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/dvd-libero-dalla-regione-come-eseguire-il-bypass-del-codice-di-area-geografica/"><u>DVD Libero Dalla Regione: Come Eseguire Il Bypass Del Codice Di Area Geografica</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-guide-to-updating-username-on-windows-11/"><u>Essential Guide to Updating Username on Windows 11</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-to-overcome-bluetooth-device-sync-challenges-on-your-windows-11-pc-updated/"><u>Expert Tips to Overcome Bluetooth Device Sync Challenges on Your Windows 11 PC (Updated )</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro/"><u>From Capture to Edit Elevating Your Immersive Video Experience Using Premiere Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-bridging-visuals-and-audio-instagram-content-to-mp3-magic/"><u>In 2024, Bridging Visuals & Audio Instagram Content to Mp3 Magic</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725290413988-macdvd/"><u>Mac用DVDリッピングガイド:ベストなソフト選びと操作手順</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-job-advertisements-in-social-networks/"><u>Navigating Job Advertisements in Social Networks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/secure-your-own-winx-saga-series-episodes-on-demand-shop-now/"><u>Secure Your Own WinX Saga Series Episodes on Demand - Shop Now!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-6-scaricabili-e-gratis-programmi-di-clonazione-dvd-italiane-cattura-intera-funzione-video/"><u>Top 6 Scaricabili E Gratis Programmi Di Clonazione DVD Italiane - Cattura Intera Funzione Video</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ps4dvd/"><u>インターネット不要！PS4DVD映像最適化：オフライン時にもクリアな紹介方法</u></a></li>
+</ul></div>
 

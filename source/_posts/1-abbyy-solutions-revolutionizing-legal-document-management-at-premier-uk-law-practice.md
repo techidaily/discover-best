@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY Solutions: Revolutionizing Legal Document Management at Premier UK Law Practice"
-date: 2024-09-05T11:27:43.373Z
-updated: 2024-09-06T11:27:43.373Z
+date: 2024-09-29T21:19:21.422Z
+updated: 2024-10-06T03:48:11.743Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b46dad75221e4740026b09a7187d9a5f274b77721a6e7c2a0a28f40e4058b1a9.jpg
@@ -20,11 +20,12 @@ Legal | Document Processing
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## ABBYY Software Helps Streamline a Key Business Process for Top London Law Firm
 
 Legal | Document Processing 
@@ -32,27 +33,16 @@ Legal | Document Processing
 ![](https://static1.abbyy.com/abbyycommedia/14328/2-eversheds_fr_e.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Eversheds](https://static2.abbyy.com/abbyycommedia/14442/eversheds-logo.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name     | Eversheds                                      |
 | -------- | ---------------------------------------------- |
 | Industry | Legal Sector                                   |
@@ -104,31 +94,27 @@ ABBYY FineReader OCR software gives Eversheds increased productivity and efficie
 
 [![ABBYY FineReader](https://static1.abbyy.com/abbyycommedia/14345/2-finereader.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Legal](https://static2.abbyy.com/abbyycommedia/14362/12-legal.jpg)](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static4.abbyy.com/abbyycommedia/14327/2a-eversheds_fr_e_small.jpg)](https://static1.abbyy.com/abbyycommedia/1191/cs%5Feversheds%5Ffr%5Fe.pdf "PDF version") [PDF version](https://static1.abbyy.com/abbyycommedia/1191/cs%5Feversheds%5Ffr%5Fe.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static1.abbyy.com/abbyycommedia/1191/cs%5Feversheds%5Ffr%5Fe.pdf "PDF version") 
 
@@ -140,12 +126,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -158,8 +138,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +145,21 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/approved-inspire-audiences-with-these-high-quality-free-sound-files/"><u>2024 Approved Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-methods-to-update-samsung-mobile-usb-driver-software/"><u>Easy Methods to Update Samsung Mobile USB Driver Software</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-broadcasts-with-manycam-leading-live-video-software-for-customizable-virtual-cameras/"><u>Enhance Your Broadcasts with ManyCam: Leading Live Video Software for Customizable Virtual Cameras</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-livestreams-easily-using-manycam-a-revolutionary-virtual-webcam-solution/"><u>Enhance Your Livestreams Easily Using ManyCam - A Revolutionary Virtual Webcam Solution</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-livestreams-using-manycam-top-of-the-line-virtual-camera-tech/"><u>Enhance Your Livestreams Using ManyCam: Top-of-the-Line Virtual Camera Tech</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-livestreams-with-manycam-leading-choice-for-virtual-camera-technology/"><u>Enhance Your Livestreams with ManyCam - Leading Choice for Virtual Camera Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-livestreams-with-manycam-enabled-software-and-digital-webcam-solutions/"><u>Enhance Your Livestreams with ManyCam-Enabled Software & Digital Webcam Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-online-presence-with-manycam-advanced-live-video-editing-tools-and-virtual-cam-tech/"><u>Enhance Your Online Presence with ManyCam: Advanced Live Video Editing Tools and Virtual Cam Tech</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-v30-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Vivo V30 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-13-mini-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 13 mini Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-realme-11-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Realme 11 5G Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagrams-video-response-rate-how-to-increase-it/"><u>In 2024, Instagram's Video Response Rate How to Increase It</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-future-of-pc-gaming-meet-eizos-cg318-4k/"><u>In 2024, The Future of PC Gaming Meet EIZO's CG318-4K</u></a></li>
+</ul></div>
 

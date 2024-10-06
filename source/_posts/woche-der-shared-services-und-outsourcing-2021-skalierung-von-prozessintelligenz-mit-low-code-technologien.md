@@ -1,7 +1,7 @@
 ---
 title: "Woche Der Shared Services Und Outsourcing 2021: Skalierung Von Prozessintelligenz Mit Low-Code Technologien"
-date: 2024-08-26T00:11:10.312Z
-updated: 2024-08-27T00:11:10.312Z
+date: 2024-10-01T03:26:43.473Z
+updated: 2024-10-05T23:31:18.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2bac998ab21448eec5a8cc247cfff1c8109a4e1512d9567d4d84793b48ec3fa6.jpg
@@ -15,25 +15,40 @@ thumbnail: https://thmb.techidaily.com/2bac998ab21448eec5a8cc247cfff1c8109a4e151
 
 German
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Sprecher
 
 ![98 Antonellosalamone 198X198](https://static4.abbyy.com/abbyycommedia/35123/logo-2021-90x27.svg) 
 
 ![98 Antonellosalamone 198X198](https://static1.abbyy.com/abbyycommedia/34857/98-antonellosalamone-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Antonello Salamone
 
 Head of Enterprise Sales DACH, **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Intelligente Automatisierung mit Low-/No-Code Skills & Process Intelligence skalieren
 
 Die SSO Woche bringt jedes Jahr Führungskräfte und Unternehmen zusammen, die die Shared-Services-Branche in der DACH-Region neu definieren. In einer Zeit großer Ungewissheit und großer Veränderungen versammeln sich führenden Köpfe der globalen Business Services und intelligenten Automatisierung, um die einfache Frage zu klären: Wie geht es weiter?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Wie geht es weiter?
 
@@ -43,14 +58,21 @@ In diesem Webinar erfahren Sie mehr über die häufigsten Fallstricke in Automat
 * Welchen Unterschied machen Low-/No-Code Plattformen bei der Skalierung?
 * Wie lassen sich Citizen Developer Tools in SSCs einsetzen?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Webinar-Aufzeichnung hier anfordern
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -60,14 +82,8 @@ All personal information collected via this method is under full scope of all pr
 
 [![Intelligente Automatisierung](https://static1.abbyy.com/abbyycommedia/34866/intelligente-automatisierung.jpg)](https://www.youtube.com/watch?v=PEKAd6SoZnE) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:
@@ -124,8 +140,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -133,4 +147,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-7-top-rated-free-mobile-apps-for-video-downloads/"><u>[New] In 2024, 7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-journey-in-sky-high-4k-clarity/"><u>[New] The Ultimate Journey in Sky High 4K Clarity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-video-venture-validation-benchmarking-against-business-rivals/"><u>[Updated] In 2024, Video Venture Validation Benchmarking Against Business Rivals</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ingenious-webcam-use-cases-at-home/"><u>[Updated] Ingenious Webcam Use Cases at Home</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-esempio-di-ottimizzazione-come-ridurre-le-dimensioni-dei-video-ad-alta-risoluzione-per-la-condivisione-su-facebook/"><u>1. Esempio Di Ottimizzazione: Come Ridurre Le Dimensioni Dei Video Ad Alta Risoluzione per La Condivisione Su Facebook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/balancing-ambient-sound-on-windowsos-x-machines-for-2024/"><u>Balancing Ambient Sound on Windows/OS X Machines for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-cyberpunk-2077s-pc-freeze-issues-a-comprehensive-guide/"><u>Fixing Cyberpunk 2077'S PC Freeze Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/inside-story-stock-pictures-and-their-internet-fame-for-2024/"><u>Inside Story Stock Pictures and Their Internet Fame for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/online-conversion-guide-change-your-avi-files-to-mp4-for-compatible-viewing-across-all-devices/"><u>Online Conversion Guide: Change Your AVI Files to MP4 for Compatible Viewing Across All Devices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-performance-hitches-for-a-smoother-playthrough-of-dying-light-fps/"><u>Overcoming Performance Hitches for a Smoother Playthrough of Dying Light FPS</u></a></li>
+<li><a href="https://discover-best.techidaily.com/pc-application-playit-full-installation-guide-covering-key-attributes-and-debugging-insights/"><u>PC Application PlayIt - Full Installation Guide Covering Key Attributes and Debugging Insights</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winx-mediatrans-le-solution-ultime-pour-transferer-fichiers-multimedia-entre-iphone-et-pc-windows-photos-videos-musiques-and-plus/"><u>WinX MediaTrans - Le Solution Ultime Pour Transférer Fichiers Multimedia Entre iPhone Et PC Windows : Photos, Videos, Musiques & Plus</u></a></li>
+</ul></div>
 

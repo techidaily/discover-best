@@ -1,7 +1,7 @@
 ---
 title: "The Future of Efficiency: Can AI Guide Digital Workers on When and How to Perform Tasks? | Exploring Possibnilities at ABBYY Blog"
-date: 2024-08-26T00:11:06.983Z
-updated: 2024-08-27T00:11:06.983Z
+date: 2024-10-01T22:31:43.523Z
+updated: 2024-10-05T17:11:49.008Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814164fccb1a1f598c30e520f7.jpg
@@ -44,8 +44,12 @@ _You can almost hear the days ticking away…_
 That’s exactly what I want to illustrate today. By adding both Process Intelligence and Content Intelligence skills to the digital worker, we can have this hiccup in the process handled on autopilot.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Process aware
 
 Now let’s start by making our digital worker process aware. To do this, we are going to leverage the capabilities of Process Intelligence to trigger the digital worker and have them execute the task whenever needed in the process. Within our process, there are certain steps for this loan approval. One of them being that all the supporting documents are available and that the review process of these documents cannot take longer than 1 hour. We call this a protocol.
@@ -57,8 +61,18 @@ With alerts and active run time operations monitoring using Process Intelligence
 The mitigation steps here require the digital worker to be able to understand the document-based content that is presented by the customer and use that to further solve the problem.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Content aware
 
 But how do we make our digital worker do that, you ask? With the easy-to-use Content Intelligence skills, you can enable your digital workers to be content aware.
@@ -66,8 +80,12 @@ But how do we make our digital worker do that, you ask? With the easy-to-use Con
 By adding this skill, the digital worker is able to efficiently process the required documents needed to automatically complete the required loan approval steps. Being able to process and extract business value from any kind of document, with the ease of dropping in a particular Content Intelligence Skill, brings us one step closer to process excellence.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Digital workers aren’t going to take over, but they will grow to help more in the workplace
 
 As we bring more and more skills to digital workers using ABBYY’s Digital Intelligence technologies, we’ll be able to automate more tedious tasks, which in turn provide better customer experiences. The importance of this is paramount, because as traditional services are becoming a commodity, having the better customer experience can make the difference. Let’s all be honest, even if you provide an exceptional service, if the journey to use that service isn’t great, customers will drop and your customer acquisition costs will rise.
@@ -81,8 +99,12 @@ Learn more about getting next-level intelligence for digital workers using ABBYY
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -91,9 +113,6 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -148,8 +167,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -157,4 +174,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-enabling-effortless-playback-of-fb-videos/"><u>[Updated] 2024 Approved Enabling Effortless Playback of FB Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-pathway-understanding-adobes-storage-solutions-and-best-backups/"><u>[Updated] 2024 Approved The Ultimate Pathway Understanding Adobe's Storage Solutions & Best Backups</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-tailoring-your-digital-footprint-customizing-your-youtube-url/"><u>[Updated] In 2024, Tailoring Your Digital Footprint Customizing Your YouTube Url</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-profit-pinnacle-peak-your-income-by-monetizing-youtube-mobile-content/"><u>[Updated] Profit Pinnacle Peak Your Income by Monetizing YouTube Mobile Content</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-top-4-gratuites-lecteur-de-dvd-pour-macos-big-sur-best-practices-en-revue/"><u>1. Top 4 Gratuites Lecteur De DVD Pour macOS Big Sur : Best Practices en Revue</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-winx-burner-professional-and-lightning-fast-video-converter-software-for-windows-11/"><u>1. WinX Burner: Professional & Lightning-Fast Video Converter Software for Windows 11</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comprehensive-guide-mastering-the-art-of-video-uploads-on-google-drive-with-expert-tips-and-common-fixes/"><u>Comprehensive Guide: Mastering the Art of Video Uploads on Google Drive with Expert Tips and Common Fixes</u></a></li>
+<li><a href="https://win-blog.techidaily.com/foster-positivity-surround-yourself-with-supportive-colleagues-or-friends-who-inspire-and-uplift-you-positive-relationships-at-work-foster-a-sense-of-commun571/"><u>Foster Positivity - Surround Yourself with Supportive Colleagues or Friends Who Inspire and Uplift You. Positive Relationships at Work Foster a Sense of Community and Can Help Boost Your Mood and Energy Levels During Challenging Periods.</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-15-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 15 Properly | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/master-class-zur-batch-konvertierung-von-videodateien-unter-verwendung-der-handbrake-software/"><u>Master-Class Zur Batch-Konvertierung Von Videodateien Unter Verwendung Der HandBrake-Software</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mp4mp3-6/"><u>MP4到MP3無損轉換技巧 - 高品質的6種選擇</u></a></li>
+<li><a href="https://windows11.techidaily.com/perfecting-desktop-aesthetics-sticky-notes-on-w11w10/"><u>Perfecting Desktop Aesthetics: Sticky Notes on W11/W10</u></a></li>
+<li><a href="https://discover-best.techidaily.com/quick-guide-enhancing-hevch265-encoding-speeds-for-streamlined-performance/"><u>Quick Guide: Enhancing HEVC/H.265 Encoding Speeds for Streamlined Performance</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-how-to-dislike-all-your-favorites-on-spotify/"><u>Step-by-Step Tutorial: How to Dislike All Your Favorites on Spotify</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transform-your-videos-with-winxvideo-ai-advanced-ai-super-resolution-for-ultimate-clarity-and-detail/"><u>Transform Your Videos with Winxvideo AI – Advanced AI Super Resolution for Ultimate Clarity and Detail</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-persistent-crashes-in-darkest-dungeon-s-gt-mkii-on-your-gaming-rig/"><u>Troubleshooting Persistent Crashes in Darkest Dungeon ˈs Gt MkII on Your Gaming Rig</u></a></li>
+<li><a href="https://discover-best.techidaily.com/vhsdvd2/"><u>VHSからDVDへ直接録画：2つのシンプルな変換手段</u></a></li>
+</ul></div>
 

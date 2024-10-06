@@ -1,7 +1,7 @@
 ---
 title: "Navigating Solo Adventures: Capturing Moments and Sorting Cards by Date Using ABBYY Tools | Expert Tips From Our Blog"
-date: 2024-08-26T00:11:05.107Z
-updated: 2024-08-27T00:11:05.107Z
+date: 2024-09-29T00:36:20.936Z
+updated: 2024-10-06T02:41:59.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -35,6 +35,14 @@ How often are you asked to take a photo of a person on the street? Now, the odds
 * Bifie – a selfie in bikini
 * Groufie (Ussie) – a group selfie with friends![селфи селебритис](https://static1.abbyy.com/abbyycommedia/26360/selfi-selebritis-1024x576.jpg)
 * Elevator selfie – a selfie taken in an elevator
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Momfie – a selfie with your mom
 * Manfie – a selfie of a man
 * Relfie – a selfie with your significant other
@@ -42,6 +50,14 @@ How often are you asked to take a photo of a person on the street? Now, the odds
 * Bathroom mirror selfie – a selfie in a bathroom
 * Wake up selfie – a selfie where your head is on a pillow and you have a sleepy face![types of selfie wake up selfie](https://static1.abbyy.com/abbyycommedia/26362/wake-up-selfie.jpg)
 * Felfie – a selfie with your pet originally taken on a farm
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Welfie – a fitness selfie made in a gym
 * Helfie – a selfie with your new haircut; the shot is taken in a beauty parlor
 * Bragging Beach Legs Selfie – a selfie of your suntanned legs
@@ -49,6 +65,13 @@ How often are you asked to take a photo of a person on the street? Now, the odds
 * Extreme selfie – a selfie taken in extreme circumstances, for example, by roofers
 
 ![types of selfie extreme selfie](https://static1.abbyy.com/abbyycommedia/26363/extreme-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The most important thing for an excellent selfie is your smartphone and its camera. On top of that, there are plenty of accessories and devices that help in taking excellent photos. Let’s talk about them in detail.
 
@@ -67,6 +90,13 @@ But have you ever heard of [Flexy Paw](https://www.pawchamps.com/)? This phone a
 [GripSnap](https://www.kickstarter.com/projects/143547447/gripsnap-the-coolest-multi-use-monopod-with-a-magn) is a monopod with a magnetic holder that can be attached to a metal surface such as a light pole or a fence when you have no place to place your phone.
 
 ![gadget for selfies grip snap](https://static1.abbyy.com/abbyycommedia/26365/grip-snap.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Selfie drones**
 
@@ -108,6 +138,13 @@ The [Qlippie](https://www.qlippieworld.com/) portable wide-angle camera is so sm
 
 ![gadget for selfies through lightning for iPhone dxo one](https://static1.abbyy.com/abbyycommedia/26373/dxo-one.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Camera lenses**
 
 To expand capabilities of your camera even further, attach additional lenses. One of the most widely used lens is [Fish Eye](https://www.amazon.co.uk/Universal-Camera-Microfiber-Carrying-Packaging/dp/B00CSJ50HY) that also comes with a wide angle and macro lenses.
@@ -132,9 +169,6 @@ Do you want to have a nourishing breakfast and feast your eyes on your own pictu
 
 ![gadget for selfies to make toasts look like you](https://static1.abbyy.com/abbyycommedia/26378/selfie-toaster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **ABBYY Tip: Searching For Business Cards By Date**
 
 Do you remember the date of a conference but the name of a person that you’ve met totally slips your memory? Yes, we’ve all been there. Try looking for their business card by its recognition date:
@@ -146,27 +180,28 @@ Do you remember the date of a conference but the name of a person that you’ve 
 
 ![Abbyy BCR search by date](https://static1.abbyy.com/abbyycommedia/26379/image-from-ios-576x1024.png)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Roofbot**
 
 ![Roofbot app logic puzzle](https://static1.abbyy.com/abbyycommedia/26380/screen-0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Roofbot is a conundrum game. Its main character is a cute robot who moves across building roofs and collects slots for a puzzle. This is a colorful game with pleasant background music, beautiful graphics, and a moving plot.
 
 ![roofbot that is trying to save planet](https://static1.abbyy.com/abbyycommedia/26381/643x0w.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 It features 120 levels and 25 tips that help you find the correct route. Roofbot is an exciting conundrum with a high rating that comes in reasonable price—only $2.99.
 
 ![roofbot app for two platforms android and ios](https://static1.abbyy.com/abbyycommedia/26382/roofbot-android-ios.jpg)
@@ -189,6 +224,13 @@ I personally would go for the second option and here is why:
 4. The most important thing on a trip is a challenge. Ask yourself: what can I accomplish? Can I overcome myself and grow into a better person? Unforgettable emotions make us better and stronger!
 
 ![beach](https://static1.abbyy.com/abbyycommedia/26384/beach-1024x768.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 But this way of traveling also comes with a set of disadvantages:
 
@@ -213,9 +255,6 @@ P.S. The previous issue is [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -271,8 +310,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -280,4 +317,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-pinterest-vid-extraction-made-easy-the-best-tools-ranked/"><u>[Updated] Pinterest Vid Extraction Made Easy The Best Tools Ranked</u></a></li>
+<li><a href="https://discover-best.techidaily.com/3-format-auf-windows-11-und-mac-professionelle-losung/"><u>3-Format Auf Windows 11 Und Mac - Professionelle Lösung!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/artificial-intelligence-in-multimedia-elevate-your-images-and-videos-through-resizing-stabilization-conversion-and-editing-processes/"><u>Artificial Intelligence in Multimedia: Elevate Your Images & Videos Through Resizing, Stabilization, Conversion, and Editing Processes</u></a></li>
+<li><a href="https://win-able.techidaily.com/beat-the-bug-blues-stabilizing-your-alien-fireteam-elite-game-on-windows-pc/"><u>Beat the Bug Blues: Stabilizing Your Alien: Fireteam Elite Game on Windows PC</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/codec-h265-hevc-gratis-download-ottimizzazione-video-in-risoluzione-4k8k/"><u>Codec H.265 (HEVC) Gratis Download – Ottimizzazione Video in Risoluzione 4K/8K</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comment-compresser-efficacement-vos-fichiers-video-en-haute-definition-hd-4k-ou-8k-pour-une-reduction-de-poids-superieure-a-90/"><u>Comment Compresser Efficacement Vos Fichiers Vidéo en Haute Définition (HD), 4K Ou 8K Pour Une Réduction De Poids Supérieure À 90 % ?</u></a></li>
+<li><a href="https://discover-best.techidaily.com/conversion-video-libre-de-frais-guide-detaille-pour-transformer-votre-contenu-en-mp4mp3/"><u>Conversion Vidéo Libre De Frais : Guide Détaillé Pour Transformer Votre Contenu en MP4/MP3</u></a></li>
+<li><a href="https://discover-best.techidaily.com/create-your-own-festive-ecard-slideshows-at-no-cost-perfect-for-sharing-with-loved-ones-this-holiday-season/"><u>Create Your Own Festive eCard Slideshows at No Cost, Perfect for Sharing with Loved Ones This Holiday Season</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-infinix-note-30-vip-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Infinix Note 30 VIP Safely | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-buy-list-selecting-the-premier-video-cards-for-youtube/"><u>In 2024, Best Buy List Selecting the Premier Video Cards for YouTube</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcome-select-proper-boot-device-glitch-on-your-pc-effective-fixes-unveiled/"><u>Overcome 'Select Proper Boot Device' Glitch on Your PC: Effective Fixes Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/streamlining-social-media-posting-vimeo-on-instagram/"><u>Streamlining Social Media Posting Vimeo on Instagram</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-12-zero-cost-ai-tools-for-video-improvement-compatible-with-pc-and-mac/"><u>Top 12 Zero-Cost AI Tools for Video Improvement: Compatible with PC & Mac</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-6-free-dvd-copying-programs-in-italy-full-content-transfer-of-main-movie/"><u>Top 6 Free DVD Copying Programs in Italy - Full Content Transfer of Main Movie</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-quality-mp4-encoder-professionelles-handbuch-zur-komprimierung-und-konvertierung-von-mp4-videomaterialien/"><u>Top Quality MP4 Encoder: Professionelles Handbuch Zur Komprimierung Und Konvertierung Von MP4-Videomaterialien</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-re305-router-range-extender-ac1200-test-and-overview/"><u>TP-Link RE305 Router Range Extender AC1200 Test & Overview</u></a></li>
+</ul></div>
 

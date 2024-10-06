@@ -1,52 +1,22 @@
 ---
 title: NTTドコモの多言語サポート強化：ABBYYの画像文字認識技術によるブレークスルー
-date: 2024-09-05T11:27:45.828Z
-updated: 2024-09-06T11:27:45.828Z
+date: 2024-10-01T16:55:05.960Z
+updated: 2024-10-05T18:53:45.706Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bd07316941701058ade8268783f1b22f361afa62011ca186263bd79d53a465d1.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## NTTドコモの多言語サポート強化：ABBYYの画像文字認識技術によるブレークスルー
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY は画像ベースの文字認識を NTT ドコモの多言語翻訳アプリに提供
 
 4月12日, 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Hanashite-Honyaku™ （はなして翻訳）アプリのユーザーは、様々な言語のテキストをより正確に翻訳できるようになりました 。_
 
 情報を有効活用するテクノロジーとソリューションで業界をリードする ABBYY® は本日、ABBYY FineReader エンジンが画像ベースの翻訳機能を日本最大のモバイルキャリア NTT ドコモが提供する「はなして翻訳」モバイルアプリに提供を開始することを発表しました。 「はなして翻訳」は英語、フランス語、ドイツ語、インドネシア語、イタリア語、ポルトガル語、スペイン語、タイ語を含む最大10言語を正確に日本語に翻訳する必要がある日本語使用者に人気のツールとなっている他、日本に滞在する外国人が日本語を別の言語に翻訳する場合にも愛用されています。 ABBYY の受賞歴のある文字認識テクノロジーを利用した「はなして翻訳」アプリのユーザーは、話し言葉や、メニュー、新聞、標識などの印刷されたテキストを翻訳することができます。
@@ -75,8 +45,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -84,4 +52,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-framing-the-perfect-frame-talking-head-shot-essentials/"><u>[New] In 2024, Framing the Perfect Frame Talking-Head Shot Essentials</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-perfect-purity-extract-background-from-your-photos-at-home/"><u>[New] Perfect Purity Extract Background From Your Photos at Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-high-fidelity-with-sonys-wh-1000xm4-headphones/"><u>Discover High Fidelity with Sony's WH-1000XM4 Headphones</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-enhancing-live-broadcasts-with-premium-webcams/"><u>In 2024, Enhancing Live Broadcasts with Premium WebCams</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-y100-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo Y100 5G</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/is-your-apple-iphone-14-pro-max-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your Apple iPhone 14 Pro Max in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-12-essential-animation-makers-to-elevate-your-video-content/"><u>New In 2024, 12 Essential Animation Makers to Elevate Your Video Content</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/the-ultimate-list-of-safe-and-speedy-video-convertors-for-windows-10-and-11-enthusiasts/"><u>The Ultimate List of Safe & Speedy Video Convertors for Windows 10 & 11 Enthusiasts</u></a></li>
+<li><a href="https://discover-best.techidaily.com/troubleshooting-video-issues-in-mozilla-firefox-8-effective-fixes/"><u>Troubleshooting Video Issues in Mozilla Firefox: 8 Effective Fixes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ultimate-step-by-step-tutorial-connecting-and-streaming-usb-videos-onto-your-television/"><u>Ultimate Step-by-Step Tutorial: Connecting & Streaming USB Videos Onto Your Television</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ultimate-walkthrough-safely-removing-dvd-content-without-losing-menu-features/"><u>Ultimate Walkthrough: Safely Removing DVD Content Without Losing Menu Features</u></a></li>
+<li><a href="https://discover-best.techidaily.com/understanding-the-m3u-format-a-beginners-guide-to-creating-and-using-m3u-playlists/"><u>Understanding the M3U Format: A Beginner's Guide to Creating and Using M3U Playlists</u></a></li>
+<li><a href="https://discover-best.techidaily.com/windows-10-voice-recorder/"><u>Windows 10 Voice Recorder不能時解決方法</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

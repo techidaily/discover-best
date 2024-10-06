@@ -1,7 +1,7 @@
 ---
 title: "Automating Invoicing Efficiency: ABBYY's Specialized Software Transforms Large-Scale Property Management Operations"
-date: 2024-09-05T11:27:43.530Z
-updated: 2024-09-06T11:27:43.530Z
+date: 2024-10-03T22:15:37.276Z
+updated: 2024-10-06T00:55:00.210Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed7177e712ed911926c5fc53a785.jpg
@@ -13,24 +13,12 @@ thumbnail: https://thmb.techidaily.com/f5c71e67a7e48026b76caae61fa224d5139bed717
 
 Other | Accounts Payable Automation
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Solution Partner Automates Invoice Processing for a Large Housing Association
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Solution Partner Automates Invoice Processing for a Large Housing Association 
 
 Other | Accounts Payable Automation 
@@ -38,14 +26,22 @@ Other | Accounts Payable Automation
 ![](https://static1.abbyy.com/abbyycommedia/15276/cs-hendre-556x303-2.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Hendre Group](https://static2.abbyy.com/abbyycommedia/14694/hendre-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name                  | Hendre Group                                    |
 | --------------------- | ----------------------------------------------- |
@@ -59,11 +55,12 @@ Other | Accounts Payable Automation
 ![INVU](https://static1.abbyy.com/abbyycommedia/14443/invu_logo.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 | Name | INVU                                 |
 | ---- | ------------------------------------ |
 | Web  | [www.invu.net](http://www.invu.net/) |
@@ -120,28 +117,10 @@ Payment times have been slashed. The 4-6 weeks typical duration is now down to 2
 
 [![Accounts Payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15275/cs-hendre-360x162-2.jpg)](https://static2.abbyy.com/abbyycommedia/1177/cs%5Fhendre%5Ffc%5Fe%5Femail.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/1177/cs%5Fhendre%5Ffc%5Fe%5Femail.pdf "PDF version") 
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://static2.abbyy.com/abbyycommedia/1177/cs%5Fhendre%5Ffc%5Fe%5Femail.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -151,6 +130,13 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -164,8 +150,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +157,21 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-epitome-of-visual-perfection-top-10-monitors-for-mac-users/"><u>[New] 2024 Approved The Epitome of Visual Perfection - Top 10 Monitors for Mac Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-observing-patterns-in-instagram-unlikes-for-2024/"><u>[Updated] Observing Patterns in Instagram Unlikes for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-pushing-boundaries-nikons-d500-in-4k-landscape/"><u>[Updated] Pushing Boundaries Nikon's D500 in 4K Landscape</u></a></li>
+<li><a href="https://discover-best.techidaily.com/movmpeg/"><u>「無料で優秀なソフトウェア：MOVをMPEG形式に簡単に変換」</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-uncharted-territories-the-ultimate-guide-to-iphone-vr-games/"><u>2024 Approved Uncharted Territories The Ultimate Guide to iPhone VR Games</u></a></li>
+<li><a href="https://discover-best.techidaily.com/sony/"><u>正しく動画を見るためのSonyウォークマン対応方法 - 解決策集</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/download-and-deploy-llama-2-your-instructional-guide/"><u>Download & Deploy Llama 2: Your Instructional Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-7-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone 7 without Password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-poco-c51-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Poco C51 Screen | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mpegmp4/"><u>MPEG/MP4ファイルの品質維持に最適な編集手法</u></a></li>
+<li><a href="https://discover-best.techidaily.com/resolving-issues-when-adding-mov-files-to-vegas-pro-expert-tips-and-solutions/"><u>Resolving Issues When Adding Mov Files to Vegas Pro: Expert Tips & Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/simple-screen-capture-utility-for-stream-deck-enthusiasts/"><u>Simple Screen Capture Utility for Stream Deck Enthusiasts</u></a></li>
+<li><a href="https://discover-best.techidaily.com/solve-your-vlc-undf-problems-with-this-complete-guide/"><u>Solve Your VLC UNDF Problems with This Complete Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-fixes-for-when-imessage-says-youre-not-connected-on-an-iphone/"><u>The Ultimate Fixes for When iMessage Says You're Not Connected on an iPhone</u></a></li>
+</ul></div>
 

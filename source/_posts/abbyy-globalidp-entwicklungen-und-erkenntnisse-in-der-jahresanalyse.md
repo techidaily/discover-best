@@ -1,28 +1,16 @@
 ---
 title: "ABBYY GlobalIDP: Entwicklungen Und Erkenntnisse in Der Jahresanalyse"
-date: 2024-09-05T11:27:43.460Z
-updated: 2024-09-06T11:27:43.460Z
+date: 2024-10-01T03:02:30.298Z
+updated: 2024-10-06T04:52:05.218Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1dec50e97267f5b7542797ed.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY GlobalIDP: Entwicklungen Und Erkenntnisse in Der Jahresanalyse
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY veröffentlicht globalen Bericht über Trends und Ergebnisse der intelligenten Dokumentenverarbeitung
 
 6\. Juni 2023
@@ -31,12 +19,6 @@ thumbnail: https://thmb.techidaily.com/c1f2394a481b4500340195e3c4792344b150afff1
 
 ![News Colleagues2](https://static1.abbyy.com/abbyycommedia/33744/news-colleagues2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY hat heute den Intelligent Document Processing (IDP) Global Trends & Outcomes Report veröffentlicht, der die Herausforderungen und Chancen für intelligente Automatisierungsinitiativen in Unternehmen aufzeigt. Der Bericht liefert Innovationsführern wichtige Erkenntnisse darüber, wie Unternehmen dokumentenzentrierte Prozesse optimieren, um operative Exzellenz zu erreichen, das Kundenerlebnis zu verbessern und den Geschäftswert zu steigern.
 
 Als Marktführer im Bereich IDP, der von zehn unabhängigen Analystenfirmen anerkannt wird, und mit drei Jahrzehnten Erfahrung in der digitalen Umwandlung von Milliarden Dokumenten, um verwertbare Erkenntnisse für mehr als 10.000 Kunden zu gewinnen, liefern die internen Daten des Unternehmens interessante Erkenntnisse über globale Trends.
@@ -68,12 +50,6 @@ Trotz ihrer unterschiedlichen Prioritäten konzentrieren sich alle drei Regionen
 
 ![](https://static1.abbyy.com/abbyycommedia/37318/idp-trendsoutcomes-infographic-may-2023-de.jpg?width=950&height=593)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Unternehmen in allen Regionen hatten ähnliche Prioritäten, um ihre intelligenten Automatisierungsplattformen mit Konnektoren zu fortschrittlicheren IDP-Funktionen zu erweitern, die eine höhere Genauigkeit beim Lesen, Extrahieren und Klassifizieren unstrukturierter und halbstrukturierter Daten bieten. Die Verbindung von High-End-IDP-Lösungen mit ihren bestehenden Plattformen ermöglicht es den Unternehmen, ihre Technologieinvestitionen kosteneffizient zu skalieren. ABBYY-Daten zufolge werden die häufigsten Konnektoren für die folgenden Plattformen angefordert:
 
 * Microsoft Power Automate
@@ -87,6 +63,13 @@ Die in diesem Bericht enthaltenen Daten stammen von Oktober bis Dezember 2022 au
 
 Um mehr über den Einsatz von ABBYY IDP und individualisierten Lösungen zu erfahren, können Sie den vollständigen Bericht und die Infografik unter [herunterladen](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -98,27 +81,23 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -133,8 +112,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +119,21 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-guide-to-discovering-your-unique-tiktok-tag/"><u>[Updated] 2024 Approved Guide to Discovering Your Unique TikTok Tag</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sensory-overload-vr-transforming-viewing-habits/"><u>2024 Approved Sensory Overload VR Transforming Viewing Habits</u></a></li>
+<li><a href="https://discover-best.techidaily.com/5-effective-ways-to-open-mpeg-4-video-files-on-your-pc-with-windows-10-or-11/"><u>5 Effective Ways to Open MPEG-4 Video Files on Your PC with Windows 10 or 11</u></a></li>
+<li><a href="https://discover-best.techidaily.com/6-best-alternative-tools-to-wondershare-uniconverter/"><u>6 Best Alternative Tools to Wondershare UniConverter</u></a></li>
+<li><a href="https://win11.techidaily.com/altering-the-native-pdf-reader-setup-in-windows/"><u>Altering the Native PDF Reader Setup in Windows</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-mpg-file-player-software-for-windows-top-10-picks/"><u>Best MPG File Player Software for Windows: Top 10 Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/budget-friendly-guide-how-to-transfer-and-create-dvds-from-your-iphone-footage/"><u>Budget-Friendly Guide: How to Transfer and Create DVDs From Your iPhone Footage</u></a></li>
+<li><a href="https://discover-best.techidaily.com/can-you-share-hevc-h265-videos-on-youtube-a-comprehensive-guide/"><u>Can You Share HEVC (H.265) Videos on YouTube? A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comprehensive-tutorial-for-integrating-estuary-mod-v2-theme-into-kodi-complete-setup-guide/"><u>Comprehensive Tutorial for Integrating Estuary Mod V2 Theme Into Kodi - Complete Setup Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/concept-to-completion-crafting-youtube-shorts-templates-masterfully/"><u>From Concept to Completion Crafting YouTube Shorts Templates Masterfully</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-tecno-lock-screen-password-by-drfone-android/"><u>How To Change Tecno Lock Screen Password?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-samsung-galaxy-a05-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Samsung Galaxy A05 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/soundtrack-to-life-fbs-music-offerings-for-2024/"><u>Soundtrack to Life FB's Music Offerings for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unmarked-stock-a-beginners-guide-to-clear-content/"><u>Unmarked Stock A Beginner's Guide to Clear Content</u></a></li>
+</ul></div>
 

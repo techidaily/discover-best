@@ -1,40 +1,22 @@
 ---
 title: "Enhanced ABBYY Business Card Scanner: Seamless Social Media Integration & Revolutionary Editing Experience on iOS"
-date: 2024-09-05T11:27:45.574Z
-updated: 2024-09-06T11:27:45.574Z
+date: 2024-10-04T20:27:11.929Z
+updated: 2024-10-05T23:54:00.732Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f5ef939a3a4cdd1934973c13.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced ABBYY Business Card Scanner: Seamless Social Media Integration & Revolutionary Editing Experience on iOS
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Business Card Reader for iOS Now Offers Smart Social Media Search and New Intuitive Editor
 
 May 29, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _The updated application helps to connect with new contacts on LinkedIn and Facebook and easily verify contact information_
 
 ABBYY®, a global provider of content intelligence solutions and services, today announced the release of Business Card Reader 9.0, the new version of the business card scanner and contact management application for iOS that comes with an intelligent social media integration and a revamped business card editor.
@@ -87,8 +69,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +76,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-isolating-visual-snapshots-from-videos-using-the-windows-10-photos-tool/"><u>2024 Approved Isolating Visual Snapshots From Videos Using the Windows 10 Photos Tool</u></a></li>
+<li><a href="https://win11.techidaily.com/deciphering-comics-layout-for-win11-users/"><u>Deciphering Comics Layout for Win11 Users</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-user-experience-through-smart-data-collection-tools/"><u>Enhancing User Experience Through Smart Data Collection Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-snappy-fortnite-visuals-in-no-time/"><u>In 2024, Snappy Fortnite Visuals in No Time</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-free-and-paid-android-video-editors-compared-top-10-picks/"><u>New Free and Paid Android Video Editors Compared Top 10 Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/professional-live-streaming-with-manycam-top-virtual-camera-and-videochat-tool/"><u>Professional Live Streaming with ManyCam - Top Virtual Camera and Videochat Tool</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-12r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quest-series-showdown-meta-quest-2-or-quest-3-the-ideal-virtual-reality-headset-for-enthusiasts-zdnet-guide/"><u>Quest Series Showdown: Meta Quest 2 or Quest 3, The Ideal Virtual Reality Headset for Enthusiasts | ZDNet Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/real-time-broadcasting-discover-manycam-top-live-streaming-app-with-built-in-virtual-camera/"><u>Real-Time Broadcasting: Discover ManyCam - Top Live Streaming App with Built-In Virtual Camera</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/troubleshooting-and-optimizing-your-rtmp-connections-using-manycam-features/"><u>Troubleshooting & Optimizing Your RTMP Connections Using ManyCam Features</u></a></li>
+<li><a href="https://discover-best.techidaily.com/upgrade-your-livestreams-with-manycam-top-virtual-camcorder-app-for-seamless-online-broadcasting/"><u>Upgrade Your Livestreams with ManyCam: Top Virtual Camcorder App for Seamless Online Broadcasting</u></a></li>
+<li><a href="https://discover-best.techidaily.com/virtual-cam-solutions-by-manycam-transform-your-live-videos-and-online-presence/"><u>Virtual Cam Solutions by ManyCam – Transform Your Live Videos and Online Presence</u></a></li>
+<li><a href="https://discover-best.techidaily.com/virtual-camcorder-excellence-the-ultimate-guide-to-using-manycam-for-online-productions/"><u>Virtual Camcorder Excellence: The Ultimate Guide to Using ManyCam for Online Productions</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

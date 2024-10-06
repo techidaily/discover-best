@@ -1,7 +1,7 @@
 ---
 title: Enhanced Website Performance Through Innovative Cookiebot Solutions
-date: 2024-08-26T00:10:14.215Z
-updated: 2024-08-27T00:10:14.215Z
+date: 2024-10-02T19:26:07.561Z
+updated: 2024-10-05T18:37:36.435Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c3e502f20e7efdaa79fe7247c347cba062451d0a182bc95c04756bb4182724ea.jpg
@@ -14,8 +14,6 @@ thumbnail: https://thmb.techidaily.com/c3e502f20e7efdaa79fe7247c347cba062451d0a1
 Air Waybill Extract and verify key data from air waybills to expedite the clearance of air shipments from gate to gate. Arrival Notice Extract key data about the whereabouts of import shipments to expedite clearance and ensure smooth transition from the arrival port to their final destination. Bill of Lading Expedite shipments and delivery by validating international Bill of Lading documents in multiple languages, conforming to origin and destination requirements. Commercial Invoice Extract, validate, and deliver required customs and payment terms from this required shipping document to clear shipments faster and streamline payments. Customs Declaration Clear customs faster by having the right data in order on the declaration form. Bypass the complexity of local customs variations with this pre- built and quickly adaptable skill. CHECKLIST | TRANSPORTATION & LOGISTICS The abundance, and complexity, of paper documentation that is used throughout the transportation and logistics industry is a point of weakness. It unavoidably causes inaccuracies, delays, unnecessary cost increases, and disturbance of downstream processes. Automating and streamlining the handling and processing of shipping documentation delivers meaningful gains: significantly expediting processes, reducing inaccuracies across documentation, increasing traceability and transparency for all stakeholders, increasing customer satisfaction, and providing more digital data for analytics and decision-making. ABBYY’s best-in-class low-code / no-code intelligent document processing (IDP) solutions deliver pre-trained AI models (document skills) and machine learning for data extraction, validation, and automated exception handling. With ABBYY IDP, citizen developers can automate paper-based processes in transportation within hours and pass accurate data to transportation management, customs automation, and other industry-specific systems using simple API and pre-built connectors. Select pre-trained document skill and get started today Get skills in the ABBYY Marketplace ABBYY Vantage document skills provide a quick-start basis for conducting proof of concept and automating document- centric processes using pre-trained AI models that are readily available in the ABBYY Marketplace. See all skills available at [marketplace.abbyy.com](https://tools.techidaily.com/abbyy/products/) 11 Document Skills for Transportation & Logistics 
 
 Certificate of Origin Verify the original sources of the contents of shipments with this pre-packaged document skill that adapts easily to complexity and declarations standards across national borders. Delivery Note Accelerate order-to-cash and procure-to-pay processing with this proof of delivery notification. Dangerous Goods Declaration Instantly meet this requirement for shipments containing hazardous or potentially dangerous materials, whether transporting them domestically or internationally. International Consignment Note (CMR) Extract and verify key data from CMR documents to expedite customs clearance procedures of goods transported via road and provide transparency and traceability to all parties involved. Packing List Extract shipment details and match against commercial invoice data to expedite BoL creation and customs clearance, efficiently manage inventory, and provide end-to-end transparency. Sea Waybill Extract and verify key data from sea waybills to expedite the clearance of sea shipments and facilitate transparency and traceability. 8 10 11 © ABBYY 2023 ABBYY, ABBYY Vantage, Vantage are either registered trademarks or trademarks of ABBYY Software Ltd. in the United States and/or other countries. All other product names, trademarks and registered trademarks are the property of their owners. DS-99 [abbyy.com](https://tools.techidaily.com/abbyy/products/) Intelligent document processing from ABBYY ABBYY Vantage is an AI-based, cloud-native intelligent document processing (IDP) platform that provides cognitive services and trained skills to understand business documents and extract meaning and insights in a human-like manner. With its low-code capabilities, Vantage empowers citizen developers to accelerate business process automation across multiple departments and processes in a fast, reliable, and simple way, making immediate impact on business results, customer experience, and ultimately competitiveness. 
-
-
 
 0/0
 
@@ -35,8 +33,6 @@ Certificate of Origin Verify the original sources of the contents of shipments w
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -44,7 +40,28 @@ Certificate of Origin Verify the original sources of the contents of shipments w
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-hacks-create-youtube-shorts-thumbnails-that-stand-out-quickly/"><u>[New] 2024 Approved Hacks Create YouTube Shorts Thumbnails That Stand Out Quickly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-beyond-photography-an-exhaustive-review-of-the-toolwiz-app-2023/"><u>[New] In 2024, Beyond Photography An Exhaustive Review of the Toolwiz App, 2023</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-mastering-visual-clarity-blur-your-meeting-backgrounds/"><u>[New] In 2024, Mastering Visual Clarity Blur Your Meeting Backgrounds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-guide-to-screen-capture-in-macos/"><u>[New] The Ultimate Guide to Screen Capture in macOS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-meme-architectural-genius-top-picks/"><u>[Updated] Meme Architectural Genius Top Picks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/esegui-il-tuffo-nelloro-dei-backup-winx-dvd-ripper-platinum-per-ripievo-di-dvd-in-formato-mp4-h265/"><u>Esegui Il Tuffo Nell'Oro Dei Backup - WinX DVD Ripper Platinum per Ripievo Di DVD in Formato MP4 (H.2^65)</u></a></li>
+<li><a href="https://discover-best.techidaily.com/high-performance-smartwatches-mastering-watchos-and-wear-os-at-60-fps-insights-from-the-abbyy-tech-team/"><u>High-Performance Smartwatches: Mastering WatchOS & Wear OS at 60 FPS - Insights From the ABBYY Tech Team</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-realme-c67-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Realme C67 5G Without PUK Codes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/introducing-abbyy-finereader-server-the-new-face-of-previously-known-abbyy-recognition/"><u>Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/luxembourg-based-deloitte-enhances-client-services-through-strategic-abbyy-collaboration/"><u>Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/master-your-nighttime-routine-with-aabbs-insights-on-call-blocking-restful-sleep-and-selecting-the-perfect-film/"><u>Master Your Nighttime Routine with AABB's Insights on Call Blocking, Restful Sleep & Selecting the Perfect Film</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maximizing-business-outcomes-with-cutting-edge-ai-and-content-analytics-expertise-from-the-abbyy-perspective/"><u>Maximizing Business Outcomes with Cutting-Edge AI and Content Analytics | Expertise From the ABBYY Perspective</u></a></li>
+<li><a href="https://discover-best.techidaily.com/model-a-1908-6-fixed-rear-sight-no-firing-pin-block-or-safety-feature-unfluted-grip/"><u>Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip</u></a></li>
+<li><a href="https://network-issues.techidaily.com/tackling-fuzzy-visuals-in-far-cry-6/"><u>Tackling Fuzzy Visuals in Far Cry 6</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

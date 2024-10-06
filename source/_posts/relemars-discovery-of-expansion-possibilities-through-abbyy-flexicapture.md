@@ -1,7 +1,7 @@
 ---
 title: Relemar's Discovery of Expansion Possibilities Through ABBYY FlexiCapture
-date: 2024-08-26T00:10:24.933Z
-updated: 2024-08-27T00:10:24.933Z
+date: 2024-10-04T21:09:13.001Z
+updated: 2024-10-05T20:39:20.890Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b71585737d9811b8df3523624.jpg
@@ -18,6 +18,13 @@ Transportation & Logistics | Document Management
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Relemar Despachante discovers new growth opportunities with ABBYY FlexiCapture®
 
@@ -38,6 +45,19 @@ Transportation & Logistics | Document Management
 #### Partner Overview
 
 ![Macrosolution](https://static4.abbyy.com/abbyycommedia/14944/logo.png) 
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name | Macrosolution                                               |
 | ---- | ----------------------------------------------------------- |
@@ -61,23 +81,14 @@ Relemar Despachante is a private Brazilian company with more than 30 years of ex
 
 ###### SEE HOW ABBYY CAN HELP
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **6** months
 
 to implement the project
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **96**%
 
 accuracy
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### **60**%
 
 reduction in manual work
@@ -117,16 +128,23 @@ As a result, Relemar Despachante can already see the positive effect of implemen
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![13-Transportation](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![relemar-pic2](https://static1.abbyy.com/abbyycommedia/14943/relemar-pic2.jpg)](https://static2.abbyy.com/abbyycommedia/14940/case-study-relemar-despachante-transportation-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/14940/case-study-relemar-despachante-transportation-en.pdf "PDF version") 
@@ -141,9 +159,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -156,8 +171,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -165,4 +178,16 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://technical-tips.techidaily.com/1726222911874-mkv-movavi/"><u>読みやすい: 安心してMKVファイル変換 - Movavi プログラムを使って無料</u></a></li>
+<li><a href="https://discover-best.techidaily.com/avancez-au-dela-de-la-business-intelligence-et-du-processus-dextraction-des-connaissances-e-book-dabbyy/"><u>Avancez Au-Delà De La Business Intelligence Et Du Processus D'Extraction Des Connaissances : E-Book D’ABBYY</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-your-digital-transformation-with-abyys-powerful-solutions-at-the-documation-2017-exhibition/"><u>Boost Your Digital Transformation with ABYY's Powerful Solutions at the Documation 2017 Exhibition</u></a></li>
+<li><a href="https://discover-best.techidaily.com/boost-your-online-presence-with-innovative-techniques-from-cookiebot-solutions/"><u>Boost Your Online Presence with Innovative Techniques From Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/celebrating-the-international-family-day-achieving-harmony-between-career-and-personal-time-with-abbyy/"><u>Celebrating the International Family Day: Achieving Harmony Between Career and Personal Time with ABBYY</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fortnite-trick-for-integrating-several-gaming-ids-into-a-single-profile/"><u>Fortnite Trick for Integrating Several Gaming IDs Into a Single Profile</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-resolve-the-large-pagefilesys-problem/"><u>How to Resolve the Large Pagefile.sys Problem</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/scalable-earnings-via-youtube-beauty-channels/"><u>Scalable Earnings via YouTube Beauty Channels</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-honor-magic-5-lite-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Honor Magic 5 Lite Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>
 

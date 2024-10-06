@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Invoice Processing: The Impact of ABBYY FlexiCapture on Sportina Group Operations"
-date: 2024-08-26T00:10:29.259Z
-updated: 2024-08-27T00:10:29.259Z
+date: 2024-10-04T21:39:11.846Z
+updated: 2024-10-05T19:09:18.117Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44d6dd331015bef170e8a84e58ebf4bd2f78d6bf84e5387ee2cc99a7ec3e5ce7.jpg
@@ -38,6 +38,13 @@ Other | Accounts Payable Automation
 #### Partners Overview
 
 ![SOLUMA](https://static2.abbyy.com/abbyycommedia/20265/soluma-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name     | SOLUMA                                      |
 | -------- | ------------------------------------------- |
@@ -93,13 +100,34 @@ In the near future, Sportina Group plans to use ABBYY products for full text OCR
 
 [![ABBYY FlexiCapture for Invoices](https://static5.abbyy.com/abbyycommedia/14349/6-flexicapture-forinvoices.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture for Invoices](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Accounts Payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Accounts Payable](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static1.abbyy.com/abbyycommedia/20184/sportina-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/20178/case-study-sportina-retail-en.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/20178/case-study-sportina-retail-en.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read the document](https://static5.abbyy.com/abbyycommedia/20178/case-study-sportina-retail-en.pdf "PDF Version") 
 
@@ -111,9 +139,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -126,8 +151,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +158,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-outstanding-graphic-revisions/"><u>[New] Outstanding Graphic Revisions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-visualize-better-with-these-leading-sticker-addon-apps-for-phones/"><u>[Updated] Visualize Better with These Leading Sticker Addon Apps for Phones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-optimizing-playback-speed-with-professional-tactics/"><u>2024 Approved Optimizing Playback Speed with Professional Tactics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-smilescribbler-share-laughter-digitally/"><u>2024 Approved SmileScribbler Share Laughter Digitally</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhancing-strategic-choices-through-forecasting-and-guidance-techniques-an-insightful-analysis-of-tiaas-experience/"><u>Enhancing Strategic Choices Through Forecasting & Guidance Techniques: An Insightful Analysis of TIAA's Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/expertengesprach-bankwesen-and-finanzdienstleistungen-ein-aabbyy-webinar-zur-digitalen-transformation/"><u>Expertengespräch: Bankwesen & Finanzdienstleistungen – Ein AABBYY-Webinar Zur Digitalen Transformation</u></a></li>
+<li><a href="https://discover-best.techidaily.com/exploring-the-synergy-between-abbyys-advanced-ocr-and-vivino-leading-wine-app-worldwide-exclusive-insights-from-abbyy-newsroom/"><u>Exploring the Synergy Between ABBYY's Advanced OCR and Vivino, Leading Wine App Worldwide - Exclusive Insights From ABBYY Newsroom</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-e-book-comment-eliminer-les-pare-feu-dans-le-processus-de-referencement-mobile-des-consommateurs/"><u>Guide E-Book: Comment Éliminer Les Pare-Feu Dans Le Processus De Référencement Mobile Des Consommateurs</u></a></li>
+<li><a href="https://discover-best.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-boosted-search-engine-optimization-results/"><u>Harnessing the Power of Cookiebot Technology for Boosted Search Engine Optimization Results</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-camon-20-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Camon 20 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-snapshits-pro-photography-edits-guide/"><u>In 2024, Mastering Snapshits Pro Photography Edits Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-analysis-how-the-satechi-stand-and-hub-elevates-your-mac-miniistudio-experience/"><u>In-Depth Analysis: How the Satechi Stand & Hub Elevates Your Mac Mini/iStudio Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/innovative-ansatze-fur-banken-im-neuen-normal-digitales-zwillingsmodell-in-der-kreditbranche/"><u>Innovative Ansätze Für Banken Im Neuen Normal - Digitales Zwillingsmodell in Der Kreditbranche</u></a></li>
+<li><a href="https://discover-best.techidaily.com/integrating-hyperautomation-with-sap-cloud-revolutionizing-the-financial-industry-through-abbyy-solutions/"><u>Integrating Hyperautomation with SAP Cloud: Revolutionizing the Financial Industry Through ABBYY Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leading-car-components-producer-streamlines-payment-documentation-through-abbyy-automation-technology/"><u>Leading Car Components Producer Streamlines Payment Documentation Through ABBYY Automation Technology</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mediasphere-app-user-experience-report/"><u>MediaSphere App User Experience Report</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+</ul></div>
 

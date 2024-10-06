@@ -1,7 +1,7 @@
 ---
 title: Driving Forward with Teamwork and Novel Approaches in the Insurance Industry
-date: 2024-09-05T11:27:44.827Z
-updated: 2024-09-06T11:27:44.827Z
+date: 2024-10-04T17:01:43.925Z
+updated: 2024-10-06T05:09:00.079Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9344fe92d8db0b4a31855d9f.JPG
@@ -19,12 +19,6 @@ September 13, 2022
 
 ![](https://static2.abbyy.com/abbyycommedia/35947/14998-cover-2-modernization.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 I was fortunate to have the opportunity to speak at the [Insurance Innovators USA](https://marketforcelive.com/insurance-innovators/events/usa/) conference, which was held in Nashville, Tennessee, in late July. I joined Prashant Hinge, VP, Automation and Employee Experience, Hanover Insurance, and Jason Gross, VP, Head of Platform at ManchesterStory for a discussion about [intelligent automation in insurance.](https://tools.techidaily.com/abbyy/products/)
 
 ![Eileen Potter ABBYY](https://static1.abbyy.com/abbyycommedia/35946/14998-eileen-potters.png)
@@ -46,6 +40,13 @@ We discussed how to capitalize on the opportunities of artificial intelligence (
 
 Our conversation started with exploring why these technologies are so powerful–which is because they can be used in really targeted ways. The opportunity ahead is to be able to use those technologies and others, like [intelligent document processing (IDP)](https://tools.techidaily.com/abbyy/products/) and [process mining](https://tools.techidaily.com/abbyy/products/), to solve specific challenges and achieve specific business outcomes across the traditional insurance value chain. We also touched on how they can enable insurers to really use data as part of the decision-making process at critical points in the policy and claims lifecycles. We definitely agreed that we’re only seeing the beginning of how these technologies will help insurers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start with the goal, not the technology
 
 Another topic of discussion was about how the most successful deployments are the ones that were targeted towards a specific business need and had defined metrics about what would be considered successful ROI.
@@ -56,12 +57,6 @@ IDC’s latest research about intelligent automation in insurance.
 
 [View the infographic](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Understand your processes first
 
 One point that really stayed with me was that when projects are deemed a failure, it’s not because the technology didn’t work; it’s most often due to organizations choosing the wrong aspect of a process to automate, simply because they didn’t truly understand their processes in the first place. Or, they didn’t clearly define the business outcomes that they were aiming to achieve.
@@ -76,27 +71,16 @@ But now, it’s clear that the overnight shift to remote work and virtual custom
 
 ![insurance modernization success](https://static1.abbyy.com/abbyycommedia/33671/news-16-success.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Incrementally improve instead of rip-and-replace
 
 Insurers need to find new approaches to improving their processes. And it’s not another rip-and-replace project. Ultimately, using technology to advance intelligent process automation is most successful when an organization defines what success looks like before a project starts. And that’s because innovative technology projects all have the potential for business value–it just depends on what your business objectives are.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Set up an innovation lab
 
@@ -107,17 +91,12 @@ This incubator approach can also help to define possible organizational changes 
 ![insurance modernization](https://static1.abbyy.com/abbyycommedia/33731/news-conference3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The most successful organizations will be the ones that find ways to embed innovation into their culture and empower their teams–both individually and collectively–to challenge the way things have always been done, and encourage, support, and reward innovative behavior across the silos of an enterprise.
 
 [Intelligent Automation for Insurers](https://tools.techidaily.com/abbyy/products/)
@@ -126,30 +105,19 @@ The most successful organizations will be the ones that find ways to embed innov
 
 ![](https://static1.abbyy.com/abbyycommedia/31994/eileenpotter-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Eileen Potter
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
 Share 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static3.abbyy.com/abbyycommedia/35948/14998-cover-1-innovation.jpg) 
@@ -158,22 +126,17 @@ Share
 
 ![](https://static4.abbyy.com/abbyycommedia/35501/insurance-cover-848x444.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [No Time to Lose: Solving Document Challenges in Insurance](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static4.abbyy.com/abbyycommedia/35325/professionals-5-848x444.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [Failproof Your Success with Intelligent Process Automation](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates
@@ -226,8 +189,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -235,4 +196,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-ultimate-guide-to-using-fbx-for-gamers/"><u>[New] The Ultimate Guide to Using FBX for Gamers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-a-united-front-brand-integrations-on-youtube-platform/"><u>[Updated] Crafting a United Front Brand Integrations on YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-from-strangers-to-community-your-facebook-onboarding-journey/"><u>[Updated] In 2024, From Strangers to Community Your Facebook Onboarding Journey</u></a></li>
+<li><a href="https://discover-best.techidaily.com/accelerate-your-4k-media-with-this-complimentary-video-transformer-for-intel-nvidia-and-amd-users/"><u>Accelerate Your 4K Media with This Complimentary Video Transformer for Intel, Nvidia, and AMD Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-absence-of-printmanagement-in-system-configuration/"><u>Addressing Absence of 'PrintManagement' In System Configuration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comparing-ios-versions-will-ios-17s-arrival-resolve-current-glitches/"><u>Comparing iOS Versions: Will iOS 17'S Arrival Resolve Current Glitches?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-virtual-programming-tutors-and-platforms-for-mastery/"><u>Discover the Best Virtual Programming Tutors and Platforms for Mastery</u></a></li>
+<li><a href="https://discover-best.techidaily.com/effortless-mac-guide-how-to-repair-and-copy-a-dvd-despite-severe-damage/"><u>Effortless Mac Guide: How to Repair and Copy a DVD Despite Severe Damage</u></a></li>
+<li><a href="https://discover-best.techidaily.com/free-downloads-top-rated-laughter-inducing-animal-clips-perfect-for-childrens-entertainment/"><u>Free Downloads: Top Rated, Laughter-Inducing Animal Clips Perfect for Children's Entertainment</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-6-plus-with-or-without-password-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 6 Plus With or Without Password</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/iphone-water-features-best-practices-for-reflections-for-2024/"><u>IPhone Water Features Best Practices for Reflections for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/step-by-step-guide-fixing-iphone-synchronization-failures-in-itunes/"><u>Step-by-Step Guide: Fixing iPhone Synchronization Failures in iTunes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ultimate-techniques-for-changing-mov-videos-into-multiple-file-types-including-mp4-flv-on-macos-featuring-superior-video-tools/"><u>Ultimate Techniques for Changing MOV Videos Into Multiple File Types Including MP4, FLV on macOS - Featuring Superior Video Tools</u></a></li>
+</ul></div>
 

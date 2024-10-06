@@ -1,24 +1,12 @@
 ---
 title: Optimizing Online Presence with Cookiebot Technology
-date: 2024-09-05T11:27:45.051Z
-updated: 2024-09-06T11:27:45.051Z
+date: 2024-09-29T19:12:51.361Z
+updated: 2024-10-05T23:32:08.465Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c19a308589c95b1ddee27c6a5a356d350b91c656d430e8488c37e77595b9f657.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Optimizing Online Presence with Cookiebot Technology
 
 [Zurück zu ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -40,11 +28,12 @@ Nehmen wir einmal die Verpflichtung zur [elektronischen Rechnungstellung der EU]
 Im Folgenden werde ich daher anhand des Beispiels ABBYY versuchen, etwas Transparenz in die Welt der Abkürzungen (LLM, CNN, ML, NLP, IDP) zu bringen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### KI-Innovation als Grundlage für ABBYY Intelligent Document Processing (IDP) 
 
 Grundsätzlich kann man sagen, dass Intelligente Dokumentenverarbeitung (IDP) eine hochentwickelte Automatisierungstechnologie zur Erfassung, Auswertung, Extraktion, Kategorisierung und Verarbeitung aussagekräftiger Daten aus großen Dokumenten-Strömen in leicht zugänglichen Formaten ist. Diese Technologie kann verschiedene Arten von Dokumenten verarbeiten, darunter Papier, PDFs, Word-Dokumente, Tabellenkalkulationen und viele andere Formate. IDP zielt vor allem darauf ab, nützliche Informationen aus großen Dokumenten zu extrahieren, ohne dass menschliche Eingaben erforderlich sind. 
@@ -69,11 +58,12 @@ Dies ist somit eine kostengünstige Methode, die die Fähigkeiten großer Sprach
 So unterstützt ABBYY die Unternehmen, mit generativer KI erfolgreich zu sein: Daten liegen oft in Silos innerhalb des Unternehmens vor, sind aber größtenteils in Geschäftsdokumenten eingeschlossen. Eine intelligente Dokumentenverarbeitung extrahiert Dokumentendaten und stellt sie in einen Kontext. Diese Daten und der Kontext werden dann mit der Benutzer-Prompot an das LLM kombiniert, um sie inhaltsbezogen zu machen. Das bedeutet, Genauigkeit, Qualität und Zuverlässigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Convolutional Neural Networks (CNN) und Transformatoren
 
 ABBYYs End-to-End-Ansatz für OCR (Optical Character Recognition) – optische Zeichenerkennung und ICR (was für Intelligent Character Recognition – also die handgeschriebenen Zeichen steht) wurde vor vielen Jahren bereits auf den Markt gebracht und seitdem kontinuierlich weiterentwickelt. ABBYY verwendet die gleichen Technologien wie ChatGPT und andere LLMs - neuronale Faltungsnetzwerke, Transformatoren und große Sprachmodelle. 
@@ -83,11 +73,12 @@ Das LLM, das ABBYY einsetzt, ist sehr spezifisch auf die Bedürfnisse der Kunden
 Diese Technik verbessert die Leistung und Genauigkeit unserer OCR-Funktionen insgesamt drastisch und wird in Kombination mit unserem statistischen Ansatz eingesetzt. Die KI entscheidet automatisch, welcher Ansatz für Ihre Dokumente am besten geeignet ist, um sie im Hinblick auf Konsistenz, Genauigkeit und Geschwindigkeit zu optimieren, was zu besseren Durchsatzraten führt. 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Deep Learning und schnelles maschinelles Lernen (ML) 
 
 Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ganz bestimmten Zweck vorzutrainieren. Das ist etwas anderes als bei Open-Source-LLMs oder Anbietern generativer KI, die diese als API anbieten. Während generative KI erstaunliche neue Möglichkeiten schafft, wie man mit Technologien interagiert, wird sie nicht bei allem gut funktionieren. Durch Deep Learning werden Modelle für einen ganz bestimmten Zweck trainiert, und darin ist es hervorragend, denn es ist zweckgebunden. Wie oben erwähnt, setzt ABBYY eine Kombination aus vielen verschiedenen Technologien ein, um eine intelligente Dokumentenverarbeitung der Spitzenklasse zu bieten. 
@@ -95,11 +86,12 @@ Deep Learning ermöglicht es ABBYY, KI-Modelle in seiner Plattform für einen ga
 Im ABBYY Produkt „Vantage“ vereint ABBYY eine Kombination aus Deep Learning und schnellem maschinellem Lernen auf einer Low-Code-IDP-Plattform, um die Durchsatzrate zu maximieren. Mit Deep Learning allein können die Kunden mit den von ABBYY trainierten Modellen sofort eine Genauigkeit von oftmals bis zu 90 Prozent erreichen. Durch die Einbeziehung des schnellen maschinellen Lernens kann die Genauigkeit sogar auf über 95 Prozent steigen. Schnelles maschinelles Lernen merkt sich die Ausreißer, die tiefes maschinelles Lernen (Deep Learning) nicht erreichen konnte, und arbeitet schnell, mit nur wenigen Variationen der fraglichen Dokumente. Das Modell verbessert sich kontinuierlich anhand der verarbeiteten Dokumente -und deren Variationen-, sowie basierend auf manuellem Input während des sogenannten HITL (Human in the Loop). Was so viel bedeutet wie manuelle Verifikation. Somit erzielen die Modelle mit der Zeit eine immer höhere Genauigkeit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Natural Language Processing (NLP) 
 
 Natural Language Processing (NLP), im deutschen Sprachraum auch Computerlinguistik bzw. linguistische Datenverarbeitung genannt, ist ein Bereich der KI als auch des maschinellen Lernens. Diese beschäftigt sich mit der Analyse und Generierung von natürlicher Sprache. Einerseits können wir durch Natural Language Processing mit Computern mittels Sprache kommunizieren, wie „Hey Alex, dimme das Licht im Pool“, andererseits erlaubt es hoch entwickelten Intelligent Document Processing (IDP), dieses Sprach-„Verständnis“ zu nutzen, um Dokumente jeglicher Art und Komplexität zu „verstehen“- unabhängig davon, ob diese textlastig, unstrukturierte hochkomplexe Dokumente sind. 
@@ -116,12 +108,6 @@ Um ein Update zu erhalten, wenn neue Artikel veröffentlicht sind, melden Sie si
 
 ![Christian Marquardt](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/christian-marquadt-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Christian Marquardt 
 
 Regional Sales Director for the DACH region at ABBYY Europe
@@ -182,8 +168,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,4 +175,21 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-creating-masterpiece-canon-sequence-captures/"><u>[New] In 2024, Creating Masterpiece Canon Sequence Captures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-most-memorable-2022-ice-sculpture-moves/"><u>[New] In 2024, The Most Memorable 2022 Ice Sculpture Moves</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-simplified-background-editing-in-google-meet-chats/"><u>[Updated] 2024 Approved Simplified Background Editing in Google Meet Chats</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-macs-leading-video-shaping-tools-in-big-sur-release/"><u>[Updated] Mac's Leading Video Shaping Tools in Big Sur Release</u></a></li>
+<li><a href="https://discover-best.techidaily.com/2023janifesdvdblu-ray/"><u>2023年のJANIFESにおけるディスク化決定！商品詳細、発売日、事前予約情報とDVD/Blu-Rayコピー方法</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-action-cam-battle-hero-4-against-hero-5/"><u>2024 Approved Action Cam Battle Hero 4 Against Hero 5</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-video-creation-on-windows-10-a-step-by-step-guide/"><u>2024 Approved Mastering Video Creation on Windows 10 A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/die-top-3-beliebteste-gratulose-videokonferenztools-fur-2024-sie-bleiben/"><u>Die Top-3 Beliebteste Gratulose Videokonferenztools Für 2024 - SIE BLEIBEN!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/diskrepanzige-moglichkeiten-fur-das-ausschneiden-von-urheberrechtsgeschutzten-dvds-aufgeklart/"><u>Diskrepanzige Möglichkeiten Für Das Ausschneiden Von Urheberrechtsgeschützten DVDs Aufgeklärt</u></a></li>
+<li><a href="https://discover-best.techidaily.com/scaricabile-gratuitamente-il-tuo-strumento-per-la-codifica-video-in-formato-hevch2ve/"><u>Scaricabile Gratuitamente: Il Tuo Strumento per La Codifica Video in Formato HEVC/H.2ve</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-infinix-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Infinix .</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-gadgets-with-toms-hardware-wisdom/"><u>Unveiling the Latest Gadgets with Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725289937915-winx-dvd-dvd/"><u>WinX DVD 서비스: 가장 신선한 DVD 리퍼 및 비디오 컨버터를 위해 제작</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winxdvd-eula-comprehensive-guide-by-digiarty-software/"><u>WinXDVD EULA: Comprehensive Guide by Digiarty Software</u></a></li>
+</ul></div>
 

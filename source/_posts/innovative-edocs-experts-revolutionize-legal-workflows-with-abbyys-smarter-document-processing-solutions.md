@@ -1,54 +1,31 @@
 ---
 title: Innovative EDocs Experts Revolutionize Legal Workflows with ABBYY's Smarter Document Processing Solutions
-date: 2024-09-05T11:27:45.760Z
-updated: 2024-09-06T11:27:45.760Z
+date: 2024-10-03T19:10:17.207Z
+updated: 2024-10-06T03:52:17.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f68ca812bcde6ea11b49f44592ad32b754408fad9ec2378e7166d9ec2c6bf6c4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Innovative EDocs Experts Revolutionize Legal Workflows with ABBYY's Smarter Document Processing Solutions
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Legal | BPO and Shared Services | eDiscovery | Document Processing
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## eDiscovery Leader Adds Advanced Intelligent Document Processing with ABBYY
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/182212.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## eDiscovery Leader Adds Advanced Intelligent Document Processing with ABBYY
 
 BPO and Shared Services | Document Processing 
@@ -56,20 +33,22 @@ BPO and Shared Services | Document Processing
 ![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static4.abbyy.com/abbyycommedia/36085/abbyy-nuix-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Nuix](https://static1.abbyy.com/abbyycommedia/36096/nuix-logo_117x56.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Nuix                                  |
 | ------------ | ------------------------------------- |
@@ -130,11 +109,12 @@ For Nuix, too, the benefits are multiple. “The added value that ABBYY brings i
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -147,8 +127,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,4 +134,24 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-elevate-your-content-with-expertly-crafted-360-videos-for-fb-for-2024/"><u>[New] Elevate Your Content with Expertly Crafted 360 Videos for FB for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-laugh-and-cry-on-instagram-best-meme-accounts-of-the-year/"><u>[New] Laugh and Cry on Instagram Best Meme Accounts of the Year</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-initial-filming-document-evaluation-guide-for-2024/"><u>[Updated] Initial Filming Document Evaluation Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-luminary-collage-conceptions-aesthetic-illumination-ideas/"><u>[Updated] Luminary Collage Conceptions Aesthetic Illumination Ideas</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/crafting-dynamic-musical-journeys-with-crossfading-for-2024/"><u>Crafting Dynamic Musical Journeys with Crossfading for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/discover-the-latest-methods-verifying-your-powershell-version-on-windows-11/"><u>Discover the Latest Methods: Verifying Your PowerShell Version on Windows 11</u></a></li>
+<li><a href="https://discover-best.techidaily.com/easy-installation-tips-for-alvin-plugin-on-kodi-compatible-with-matrix-systems/"><u>Easy Installation Tips for Alvin Plugin on Kodi, Compatible with Matrix Systems</u></a></li>
+<li><a href="https://discover-best.techidaily.com/easy-methods-for-transforming-your-videos-into-mobile-format-for-apple-devices-ios/"><u>Easy Methods for Transforming Your Videos Into Mobile Format for Apple Devices (iOS)</u></a></li>
+<li><a href="https://discover-best.techidaily.com/efficient-online-and-desktop-solutions-for-modifying-mpeg-video-format/"><u>Efficient Online & Desktop Solutions for Modifying MPEG Video Format</u></a></li>
+<li><a href="https://discover-best.techidaily.com/effortless-video-download-from-coub-a-comprehensive-guide/"><u>Effortless Video Download From Coub - A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-best.techidaily.com/embarking-on-a-new-adventure-a-step-by-nstep-guide-to-kickstarting-success/"><u>Embarking on a New Adventure: A Step-by-nStep Guide to Kickstarting Success</u></a></li>
+<li><a href="https://discover-best.techidaily.com/experience-smooth-screen-recording-with-these-15-elite-no-cost-solutions/"><u>Experience Smooth Screen Recording with These 15 Elite, No-Cost Solutions!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/free-solutions-for-downloading-vimeo-content-as-mp4-files-discover-these-5-quick-techniques/"><u>Free Solutions for Downloading Vimeo Content as MP4 Files - Discover These 5 Quick Techniques</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-converting-and-watching-mkv-videos-on-your-dvd-player/"><u>Guide: Converting and Watching MKV Videos on Your DVD Player</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-sound-transition-in-logic-pro-x/"><u>In 2024, The Art of Sound Transition in Logic Pro X</u></a></li>
+<li><a href="https://extra-support.techidaily.com/modern-warfare-pc-troubleshooting-guide-ensuring-smooth-gameplay/"><u>Modern Warfare PC Troubleshooting Guide: Ensuring Smooth Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-game-changer-reviewing-the-impressive-specs-and-portability-of-xbox-series-s/"><u>The Game Changer: Reviewing the Impressive Specs and Portability of Xbox Series S</u></a></li>
+</ul></div>
 

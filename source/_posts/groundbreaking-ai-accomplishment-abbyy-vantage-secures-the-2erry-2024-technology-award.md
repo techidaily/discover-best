@@ -1,28 +1,16 @@
 ---
 title: "Groundbreaking AI Accomplishment: ABBYY Vantage Secures the 2Erry 2024 Technology Award"
-date: 2024-09-05T11:27:44.020Z
-updated: 2024-09-06T11:27:44.020Z
+date: 2024-10-01T01:45:52.624Z
+updated: 2024-10-05T21:11:39.043Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0817e17832f9eb6eaafa089134585eb7da7e6eb5282db756bf22aa798c8924ed.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Groundbreaking AI Accomplishment: ABBYY Vantage Secures the 2Erry 2024 Technology Award
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Vantage Wins “Best Intelligent Document Processing Solution” in 7th Annual AI Breakthrough Awards
 
 ###### Slavena Hristova
@@ -37,12 +25,6 @@ Today, we’re proud to announce that this innovation in IDP has earned ABBYY Va
 
 ![ai-breakthrough-award-badge-2024-474x444](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-vantage-wins-ai-breakthrough-awards/ai-breakthrough-award-badge-2024-474x444.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The pre-trained AI models within Vantage (also known as skills) use advanced natural language processing (NLP), optical character recognition (OCR), large language models (LLMs) and machine learning to extract and understand data within documents like humans. Through these capabilities, enterprises can efficiently and autonomously process any type of document for any business process, or use case, regardless of language or complexity, extracting and processing vital data to [achieve 95% automation out of the box](https://tools.techidaily.com/abbyy/products/). 
 
 ABBYY’s award-winning, purpose-built approach to AI and IDP is epitomized by its pre-trained AI models that extract business-critical data from certain document types (e.g. payslips, tax forms, insurance claims, identity documents, invoices, purchase orders, receipts, bills of lading, etc.) right out of the box. These purpose-built skills can be adjusted according to specific requirements and continuously uptrained based on customers’ documents and input from human-in-the-loop verification. A wide variety of skills are available on the [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), enhancing Vantage and enabling it to integrate seamlessly with third-party platforms for ERP, BPM and other business systems.
@@ -65,18 +47,6 @@ Being named ‘Best Intelligent Document Processing Solution’ by AI Breakthrou
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY
@@ -135,8 +105,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -144,4 +112,29 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-step-by-step-guide-to-youtube-playlist-in-html/"><u>[New] 2024 Approved Step-by-Step Guide to YouTube Playlist in HTML</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-achieve-mastery-in-tracking-fbs-recently-seen-videos-for-2024/"><u>[New] Achieve Mastery in Tracking Fb’s Recently Seen Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-hexa-copters-the-top-ten-selection/"><u>[New] Hexa-Copters The Top Ten Selection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-transforming-photos-adding-motion-blur-to-peoples-portraits-with-picsart/"><u>[New] In 2024, Transforming Photos Adding Motion Blur to People's Portraits with Picsart</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-crafting-compelling-conversations-essential-expressions/"><u>[Updated] In 2024, Crafting Compelling Conversations Essential Expressions</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/briskly-building-your-own-google-collages-for-2024/"><u>Briskly Building Your Own Google Collages for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/cookiebot-enhanced-website-technology/"><u>Cookiebot-Enhanced Website Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/discover-abbyys-intelligent-input-management-techniques-and-enhance-work-efficiency-through-digital-docs-at-the-exhibition-in-halle-3-mar-14-18/"><u>Discover ABBYY's Intelligent Input Management Techniques and Enhance Work Efficiency Through Digital Docs at the Exhibition in Halle 3 (Mar 14-18)</u></a></li>
+<li><a href="https://discover-best.techidaily.com/efficiency-revolutionized-abbyy-solutions-transform-key-procedures-at-banque-populaire-de-louest-announces-newsroom/"><u>Efficiency Revolutionized: ABBYY Solutions Transform Key Procedures at Banque Populaire De L’Ouest, Announces Newsroom</u></a></li>
+<li><a href="https://discover-best.techidaily.com/elevate-conversions-and-analytics-optimized-using-insectusbot-technology/"><u>Elevate Conversions & Analytics: Optimized Using InsectusBot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/embracing-artificial-intelligence-how-2cuirys-experts-predict-its-rise-this-year/"><u>Embracing Artificial Intelligence: How 2Cuiry's Experts Predict Its Rise This Year</u></a></li>
+<li><a href="https://discover-best.techidaily.com/embracing-change-in-finance-the-power-of-automating-accounts-payable-processes/"><u>Embracing Change in Finance: The Power of Automating Accounts Payable Processes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhanced-billing-system-via-abbyy-partnership-streamlines-financial-tasks-in-major-community-housing-organizations/"><u>Enhanced Billing System via ABBYY Partnership Streamlines Financial Tasks in Major Community Housing Organizations</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/no-key-no-problem-master-these-tips-to-regain-entry-to-your-facebook-profile/"><u>No Key? No Problem! Master These Tips to Regain Entry to Your Facebook Profile</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

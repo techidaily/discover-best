@@ -1,18 +1,12 @@
 ---
 title: Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog
-date: 2024-09-05T11:27:43.477Z
-updated: 2024-09-06T11:27:43.477Z
+date: 2024-10-05T04:36:30.658Z
+updated: 2024-10-06T01:30:41.109Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e9f2de3fe739ce800e08e572da8b622265103b19b637342a76d71b38cffa3022.JPG
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accelerating Financial Workflows with Mobile-Based Expense Tracking | Expert Opinion on Process Automation at ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,12 +17,6 @@ August 24, 2017
 
 ![Mobile-driven expense management as an accelerator for finance process automation | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25224/8648e_блог-и-smm_кадрирование-для-блога-24-августаblog.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Automation is fast becoming a buzzword especially among knowledge workers who strive to minimize the need for manual labor in the accounts payable departments. It is easy to see why. Whether in large companies or in small companies and startups, expenses are an annoyance for both employers and employees.
 
 Today, up to 46 percent of businesses still depend on manual tools to manage expenses, according to T&E firm Certify. Among small businesses, that figure has risen to as high as 64 percent, seeming to confirm that the smaller the business, the greater the dependence on manual tools to manage expenses.
@@ -48,12 +36,6 @@ Mobile-driven expense management offers numerous advantages including:
 * Niche performance - provides easy-to-access platform for companies to process, manage and control expenses in hybrid clouds, custom services and expense management systems
 * Increased performance - more productivity, effortless collaboration, streamlined approval system, automated data transfer to EMS.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Technical Challenges
 
 Despite the obvious advantages offered mobile-driven expense management, some inconvenience is still experienced when using the technology. The first problem is that developing receipt processing technology is anything but simple. Some common challenges that have hampered previous efforts include;
@@ -71,11 +53,12 @@ _By Jonathan Darbey_
 [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Finance & Accounting](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -130,8 +113,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +120,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-views-degrees-of-rotation-on-youtube-a-2023-guide-for-2024/"><u>[New] Elevate Your Views Degrees of Rotation on YouTube - A 2023 Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-your-pathway-to-successful-youtube-beginnings-techniques-1-and-2/"><u>[New] In 2024, Your Pathway to Successful YouTube Beginnings (Techniques 1 & 2)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-armies-united-exploring-the-ultimate-7-strategy-wars/"><u>[Updated] Armies United Exploring the Ultimate 7 Strategy Wars</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-properly-terminate-and-delete-your-linkedin-account/"><u>[Updated] How to Properly Terminate and Delete Your LinkedIn Account</u></a></li>
+<li><a href="https://discover-best.techidaily.com/discover-the-ultimate-list-of-easy-to-use-slideshow-creators-including-comprehensive-how-tos/"><u>Discover the Ultimate List of Easy-to-Use Slideshow Creators: Including Comprehensive How-Tos</u></a></li>
+<li><a href="https://discover-best.techidaily.com/dvdand-lgdvd/"><u>DVDコピー&ストリーミングガイド: サムスン・ソニー・LGのDVD手入れ</u></a></li>
+<li><a href="https://discover-best.techidaily.com/easy-instructions-for-adding-newsmaxtv-channel-to-android-tvs-and-live-streaming-units/"><u>Easy Instructions for Adding NewsmaxTV Channel to Android TVs and Live Streaming Units</u></a></li>
+<li><a href="https://discover-best.techidaily.com/efficient-strategies-mastering-the-art-of-shrinking-mts-videos/"><u>Efficient Strategies: Mastering the Art of Shrinking MTS Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-artedit-master/"><u>In 2024, ArtEdit Master</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/potential-for-processor-improvement-in-portable-devices/"><u>Potential for Processor Improvement in Portable Devices</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-oneplus-ace-2v-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My OnePlus Ace 2V Black and White | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced User Tracking with Advanced Cookiebot Technology
-date: 2024-08-26T00:10:59.863Z
-updated: 2024-08-27T00:10:59.863Z
+date: 2024-09-30T19:21:59.426Z
+updated: 2024-10-05T23:10:43.016Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53f4cf1942b1dcf1c240fc190.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 10月4日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 日本企業のDXの成功を阻む、経営陣と現場マネージメントの認識の差が浮き彫りに
 
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 
 [![](https://static1.abbyy.com/abbyycommedia/34336/infographics-outlook-on-digital-transformation-jp.jpg)](https://www.abbyy.com/media/34336/infographics-outlook-on-digital-transformation-jp.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 【調査方法】
 
 本調査は、ABBYYが委託し、Sapio Research社が2021年4、5、6月に実施。英国、米国、フランス、ドイツ、日本の従業員1,000人以上の企業におけるIT分野の意思決定者1,220人を対象とし、DXプロジェクトの影響、ビジネスが直面している障壁、コロナ禍において自動化技術が果たす役割について聞き取り調査しました。
@@ -79,8 +93,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,7 +100,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlocking-viral-potential-creating-captivating-instagram-puzzles/"><u>[New] 2024 Approved Unlocking Viral Potential Creating Captivating Instagram Puzzles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-quick-and-effective-methods-to-save-instagram-stories/"><u>[Updated] 2024 Approved Quick & Effective Methods to Save Instagram Stories</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-channeling-cashflow-a-beginners-guide-to-youtube-earning-for-2024/"><u>[Updated] Channeling Cashflow A Beginner’s Guide to YouTube Earning for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-choose-wisely-best-border-tools-for-stylizing-instagram-photos/"><u>[Updated] Choose Wisely Best Border Tools for Stylizing Instagram Photos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-desktopmobile-screen-sharing-in-google-meet/"><u>2024 Approved Mastering Desktop/Mobile Screen Sharing in Google Meet</u></a></li>
+<li><a href="https://discover-best.techidaily.com/avi-vs-mp4-formats-a-comprehensive-guide-to-understanding-their-differences/"><u>AVI Vs. MP4 Formats - A Comprehensive Guide to Understanding Their Differences</u></a></li>
+<li><a href="https://discover-best.techidaily.com/come-clonare-i-tuoi-dischi-dvd-per-plex-in-soli-tre-facili-passaggi-tecniche-da-provenire-nel-2023/"><u>Come Clonare I Tuoi Dischi DVD per Plex in Soli Tre Facili Passaggi - Tecniche Da Provenire Nel 2023</u></a></li>
+<li><a href="https://discover-best.techidaily.com/easy-steps-for-converting-and-watching-movie-dvds-on-roku-using-a-windowsmac-desktop/"><u>Easy Steps for Converting and Watching Movie DVDs on Roku Using a Windows/Mac Desktop</u></a></li>
+<li><a href="https://discover-best.techidaily.com/effortless-video-conversion-with-the-free-winx-program-rip-your-dvds-to-mp4-on-windows-tenth-edition/"><u>Effortless Video Conversion with the Free WinX Program: Rip Your DVDs to MP4 on Windows Tenth Edition</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/elevate-your-skills-with-stellars-selection-of-software-tips-and-tricks-for-diy-projects/"><u>Elevate Your Skills with Stellar's Selection of Software Tips and Tricks for DIY Projects</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-htc-u23-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from HTC U23 To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-gt-neo-5-se-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-gear-for-comprehensively-filmed-action/"><u>In 2024, Best Gear for Comprehensively Filmed Action</u></a></li>
+<li><a href="https://discover-best.techidaily.com/kostenlose-dvd-regionskodierungsoberwindung-fuhren-sie-eine-auslandische-dvd-auf-windows-10-8-oder-7-kostenlos-um/"><u>Kostenlose DVD-Regionskodierungsoberwindung - Führen Sie Eine Ausländische DVD Auf Windows 10, 8 Oder 7 Kostenlos Um</u></a></li>
+<li><a href="https://discover-best.techidaily.com/kunstliche-intelligenz-bei-winxvideo-aufschlussreiche-faqs-und-antworten-zur-verwendung-der-hightech-software/"><u>Künstliche Intelligenz Bei WinXvideo: Aufschlussreiche FAQs Und Antworten Zur Verwendung Der Hightech-Software</u></a></li>
+<li><a href="https://discover-best.techidaily.com/pcdvd-2023/"><u>PCを使わない方法でレンタルDVDを複製する - 最新ガイド記事 (2023年生まれの映像専門家による解説)</u></a></li>
+<li><a href="https://win-able.techidaily.com/simple-and-effective-methods-to-transform-sdf-file-formats-with-ease/"><u>Simple & Effective Methods to Transform SDF File Formats with Ease</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725287563235-winxvideo-ai-ai/"><u>Winxvideo AI - 如何以AI技術進行螢幕和線上攝影會錄制</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winxvideo-ai-aiand-and/"><u>WinxVideo AI: 最先端AIによるビデオ&写真アップグレード - 高解像度・修復機能付き & 動画変換ソフトウェアを無料試用！</u></a></li>
+</ul></div>
 
