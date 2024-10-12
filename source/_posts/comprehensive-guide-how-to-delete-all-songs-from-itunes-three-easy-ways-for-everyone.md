@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide: How to Delete All Songs From iTunes - Three Easy Ways for Everyone!"
-date: 2024-09-23T20:16:25.478Z
-updated: 2024-09-30T17:46:16.034Z
+date: 2024-10-08T16:12:06.807Z
+updated: 2024-10-11T20:30:50.004Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2f1095b1f1474aef4ef5c21f.png
@@ -32,6 +32,19 @@ iPhoneX/iPhone8/8 Plus/7/6s/6/5sのiPhoneはすばらしい音楽機能がある
 
 ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/smart-solution-to-delate-iphone-music01.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 一般的に、iPhone本体の設定によりiPhone曲を削除するのは最も広く受け入れられている。そうして、iPhoneに保存したiTunesから同期した音楽ファイルとか、購入済みの音楽ファイルやアルバムとか、手軽く削除することができる。以下はiOS 11を搭載したiPhoneX/iPhone 8を例として、やり方をご案内する。
 
   
@@ -49,24 +62,25 @@ iPhoneX/iPhone8/8 Plus/7/6s/6/5sのiPhoneはすばらしい音楽機能がある
   
 ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/tip.jpg) iPhoneでミュージックに入ってる曲を消す時に出る「マイミュージックから削除」と「ダウンロードを削除」の違いが分かるか。現在お使いのiPhoneからのみ曲、アルバム、またはプレイリストを削除するには、「ダウンロードを削除」を選択する。この曲、アルバム、またはプレイリストは、ほかのすべてのデバイスのライブラリには残る。一方、すべてのデバイスの iCloudミュージックライブラリから削除する場合は、「マイミュージックから削除」をタップする。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## iPhoneミュージックを削除方法（二）：iPhoneミュージックアプリの使用
 
 勝手に1曲単位、アルバム単位、アーティスト単位で音楽をまとめて削除することができる方法を探してみれば、専門のiPhoneミュージックアプリ[**MacX MediaTrans**](https://tools.techidaily.com/macxdvd/products/)を利用したほうがおすすめ。MacX MediaTransを使って、パソコンでお好きなようにiPhone曲を削除することはもちろん、音楽を編集、パソコンとiPhoneの間で音楽を転送・同期することもできる。まるでオールインワンiPhone音楽管理アプリである。 
 
 [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/btnm.png)](https://tools.techidaily.com/macxdvd/products/) [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/btnw.png)](https://tools.techidaily.com/winxdvd/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 MacX MediaTransを利用してiPhoneミュージックを削除しよう！
 
@@ -86,6 +100,13 @@ MacX MediaTransを利用してiPhoneミュージックを削除しよう！
 
 ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/smart-solution-to-delate-iphone-music02.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 1：**以上の操作が終わると、このiPhoneミュージックアプリのインターフェースに入る。そして、真ん中にある【音楽管理】アイコンをクリックする。
 
   
@@ -96,13 +117,6 @@ MacX MediaTransを利用してiPhoneミュージックを削除しよう！
 
   
 ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/tip.jpg) 誤って削除した時、iTunesライブラリから音楽を再ダウンロードするだけでいい。
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## iPhoneミュージックを削除方法（三）：iTunesの使用 
 
@@ -138,16 +152,16 @@ iPhoneミュージックを削除する時、第三者のiPhoneミュージッ�
 
 [![](https://www.macxdvd.com/apple-iphone-transfer/../blog/new-fourteen/info.jpg)](https://tools.techidaily.com/macxdvd/products/) [![](https://www.macxdvd.com/apple-iphone-transfer/../blog/new-fourteen/coupon-btn.jpg)](https://secure.avangate.com/order/checkout.php?PRODS=4626941&QTY=1&CART=1&SHORT%5FFORM=1&COUPON=MACXOBON2014) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  カテゴリ：[iTunes](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/zl.png) いつもシェアありがとうございます![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/zr.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## コメントの多い記事一覧
 
@@ -155,17 +169,10 @@ iPhoneミュージックを削除する時、第三者のiPhoneミュージッ�
 * [_Music FM本物_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p8.jpg)本物のMusic FMをiPhoneにダウンロードする方法](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * [_Wi-Fiなし音楽_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p7.jpg) オフラインやWi-Fiなしで聴ける無料音楽アプリ2024年版！](https://tools.techidaily.com/macxdvd/products/)
@@ -173,20 +180,13 @@ iPhoneミュージックを削除する時、第三者のiPhoneミュージッ�
 * [_iPhone曲 PCなし_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p5.jpg) 超簡単！パソコンを使わずにiPhoneに曲を入れる方法3つ！](https://tools.techidaily.com/macxdvd/products/)
 * [_iPhone写真_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p2.jpg) 勝手にiPhone写真が消えた！アイフォン写真消えた原因と復元方法](https://tools.techidaily.com/macxdvd/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * [_Music FM iTunes_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p3.jpg) 本物Music FM iTunesにファイル共有できない原因及びその対策！](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * [_iPhone認識_ ![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/p1.jpg) iTunes iPhone認識しない原因と対処法まとめ！MacとWindows](https://tools.techidaily.com/macxdvd/products/)
@@ -196,14 +196,14 @@ iPhoneミュージックを削除する時、第三者のiPhoneミュージッ�
 
 [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/f.png)](https://www.facebook.com/Digiarty.Software.Japan) [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/tw.png)](https://twitter.com/DigiartyInc) [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/y.png)](https://www.youtube.com/channel/UCqY5hItdifUTbKX2sKXe4fQ) 
 
-[![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/top.png)](https://www.macxdvd.com/apple-iphone-transfer/javascript:;)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/top.png)](https://www.macxdvd.com/apple-iphone-transfer/javascript:;)
 
 [![](https://www.macxdvd.com/apple-iphone-transfer/images/seomodel/ilogo.png)](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -251,19 +251,22 @@ Digiarty SoftwareがApple Inc.と開発または商業提携をしていませ�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-hide-and-view-fb-snapshot-tool/"><u>[Updated] In 2024, Hide-and-View FB Snapshot Tool</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1-professionelle-winxvideo-ai-vollversion-kaufen-exklusives-upgrade-fur-premiumbenutzer/"><u>1. Professionelle WinxVideo-AI Vollversion Kaufen: Exklusives Upgrade Für Premiumbenutzer</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1-ultimate-guide-to-manycam-top-notch-live-streaming-and-virtual-webcams/"><u>1. Ultimate Guide to ManyCam: Top-Notch Live Streaming and Virtual Webcams</u></a></li>
-<li><a href="https://discover-best.techidaily.com/best-features-of-manycam-innovative-live-video-recording-and-online-presentation-solutions/"><u>Best Features of ManyCam: Innovative Live Video Recording and Online Presentation Solutions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-a05s-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy A05s Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://discover-best.techidaily.com/download-no-cost-dvd-extractor-tool-for-mac-transform-your-dvds-into-mobile-friendly-mp4-mov-and-hevc-files/"><u>Download No-Cost DVD Extractor Tool for Mac: Transform Your DVDs Into Mobile-Friendly MP4, MOV, and HEVC Files</u></a></li>
-<li><a href="https://discover-best.techidaily.com/efficient-heic-to-jpeg-transformation-the-ultimate-guide-on-using-a-heic-converter/"><u>Efficient HEIC-to-JPEG Transformation: The Ultimate Guide on Using a HEIC Converter</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-master-zooming-on-your-iphoneipad-a-step-by-step-guide/"><u>How to Master Zooming on Your iPhone/iPad: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/swap-periscopes-lens-innovative-video-platforms-for-smartphones/"><u>Swap Periscope's Lens Innovative Video Platforms for Smartphones</u></a></li>
-<li><a href="https://discover-best.techidaily.com/transcodificacion-sin-perdidas-de-calidad-conversion-de-hevc-a-mp4-explicada/"><u>Transcodificación Sin Pérdidas De Calidad - Conversión De HEVC a MP4 Explicada</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-techniques-for-unstable-airpod-link-with-iphone-in-11-simple-ways/"><u>Troubleshooting Techniques for Unstable AirPod Link with iPhone in 11 Simple Ways</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-guide-resolving-roblox-launch-issues-proven-troubleshooting-steps/"><u>Ultimate Guide: Resolving Roblox Launch Issues - Proven Troubleshooting Steps</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-tutorial-on-how-to-pair-your-ps4-gamepad/"><u>Ultimate Tutorial on How to Pair Your PS4 Gamepad</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/your-guide-to-masterful-mememaking-on-9gag/"><u>Your Guide to Masterful Mememaking on 9GAG</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-elite-6-urban-home-structures-in-minecraft/"><u>[New] 2024 Approved Elite 6 Urban Home Structures in Minecraft</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-identifying-best-free-online-and-web-services-tiktok-to-mp3-converter-list-6/"><u>[New] In 2024, Identifying Best Free Online and Web Services TikTok to MP3 Converter List (6)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visual-victory-top-10-online-apps-to-sharpen-your-snaps/"><u>[Updated] 2024 Approved Visual Victory Top 10 Online Apps to Sharpen Your Snaps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-obtain-high-quality-unrestricted-photography-for-2024/"><u>[Updated] How To Obtain High-Quality, Unrestricted Photography for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-free-and-fast-top-3-ultimate-tools-for-downloading-premium-tracks-from-bandcamp-without-any-hassle/"><u>1. [FREE & FAST] Top 3 Ultimate Tools For Downloading Premium Tracks From Bandcamp Without Any Hassle</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-transform-your-movies-converting-dvds-and-more-into-an-effortless-usb-viewing-experience/"><u>1. Transform Your Movies: Converting DVDs & More Into an Effortless USB Viewing Experience</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726026538262-windows/"><u>動画の回転方法 - Windows フォトを使った解決策</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-poco-c55-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Poco C55 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-fatal-exception-error-in-windows-1011-code-0x8007045d/"><u>Fixing Fatal Exception Error in Windows 10/11: Code 0X8007045D</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726026878965-gif/"><u>GIFウェルカムバナーを手軽に制作する方法</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratis-converter-van-mp4-naar-ogg-professioneel-online-tool-voor-professionele-resultaat-movavi/"><u>Gratis Converter Van MP4 Naar OGG: Professioneel Online-Tool Voor Professionele Resultaat - Movavi</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-vintage-racing-sims-our-favorite-five/"><u>In 2024, Vintage Racing Sims Our Favorite Five</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/save-big-on-the-high-quality-amazon-fire-tv-omni-with-qled-enjoy-a-limited-time-offer-of-150-off/"><u>Save Big on the High-Quality Amazon Fire TV Omni with QLED, Enjoy a Limited Time Offer of $150 Off!</u></a></li>
+<li><a href="https://discover-best.techidaily.com/windows-11-your-ultimate-guide-to-playing-wlmp-files-with-ease/"><u>Windows 11: Your Ultimate Guide to Playing WLMP Files with Ease</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726027476698-windows-pc/"><u>Windows PC上でクリアな音声録音のテクニック</u></a></li>
+<li><a href="https://discover-best.techidaily.com/wmp-wmawav/"><u>WMP対応: WMA/WAV形式を簡単に切り替える方法</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1726028022987-7/"><u>オンラインで人気の動画編集サイトベスト7推薦</u></a></li>
 </ul></div>
 

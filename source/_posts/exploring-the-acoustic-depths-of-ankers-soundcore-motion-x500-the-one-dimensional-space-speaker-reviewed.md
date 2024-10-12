@@ -1,7 +1,7 @@
 ---
 title: Exploring the Acoustic Depths of Anker's SoundCore Motion X500 – The One-Dimensional Space Speaker Reviewed
-date: 2024-09-29T20:51:50.728Z
-updated: 2024-09-30T16:13:09.286Z
+date: 2024-10-04T23:44:33.299Z
+updated: 2024-10-11T17:28:23.899Z
 tags:
   - product-reviews
 categories:
@@ -58,16 +58,16 @@ The Soundcore Motion X500 features Hi-Res wireless audio and three-channel spati
 
 [$169.99 at Soundcore](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x500-a3131011&ourl=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x500-launch-bonus) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Spatial Audio By Design
 
 ![close up of the top of the Soundcore Motion X500 showing control buttons](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/close-up-of-the-top-of-the-soundcore-motion-x500-showing-control-buttons.JPG) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
 
@@ -79,23 +79,9 @@ Tyler Hayes / How-To Geek
 
  Overall, this speaker is pretty self-explanatory from a design perspective. It’s a lunch box-style portable music maker that can be used outside or in a bedroom. If there’s one thing I would change about its look, however, it would be the huge Soundcore logo across the front. I hate it. It’s subtle on the black model, so I minded it less, but compared to the plain front of the X600, this newer one simply feels boastful, when it shouldn’t be.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  The Motion X500 Sounds Like Any Other Bluetooth Speaker
 
 ![Soundcore Motion X500 outside facing forward](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/soundcore-motion-x500-outside-facing-forward.JPG) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
 
@@ -121,6 +107,13 @@ Close
 
  Normally, a section would be dedicated to a device's mobile app. In this case, functions and features for the Motion X500 in the Soundcore app are minimal. The app is available for [iPhone](https://apps.apple.com/us/app/soundcore/id1331876603) and [Android](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2000903/https://play.google.com/store/apps/details?id=com.oceanwing.soundcore&hl=en%5FUS&gl=US) but only offers an EQ and a few customizable options for the light brightness of the buttons. (Everything is contained in two screens.) Beyond using it for firmware updates, the app might not even be worth downloading to use with this particular speaker.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Battery Life Is a Tentative Thumbs-Up
 
 ![Charging port on Soundcore Motion X500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/charging-port-on-soundcore-motion-x500.JPG) 
@@ -131,16 +124,16 @@ Tyler Hayes / How-To Geek
 
  The speaker charges via a rubber-seal-protected USB-C port and I had no problem with it, though its six-hour recharge time felt a little long. The problem I had with the device's battery was that there was no good way to tell how much listening time was left. The only power level was in the Soundcore app, but it didn't show a percentage, only a small icon that was not helpful.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Motion X500 Price and Availability
 
  The Soundcore Motion X500 retails for $169.99 (£169.99 in the U.K) but launched with a promotional price of $129.99\. If you want a step-up in audio performance, the [Motion X600](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x600-a3130011) has been selling for $199.99.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Should You Buy the Anker Soundcore Motion X500?
 
@@ -151,6 +144,13 @@ Tyler Hayes / How-To Geek
  At its full $169.99 price, this speaker is a little disappointing—get the X600 instead! If you can find it for its promotional $129.99 price, or less, you’ll be much happier with its value.
 
 ![motion x500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/cleanshot_2023-11-01_at_12-51-34_2x-removebg-preview.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #####  Soundcore Motion X500
 
@@ -175,24 +175,21 @@ The Soundcore Motion X500 features Hi-Res wireless audio and three-channel spati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-professional-iphone-cinematography-nine-crucial-tips-to-perfect-videos/"><u>2024 Approved Professional iPhone Cinematography Nine Crucial Tips to Perfect Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-strategies-for-swiftly-locating-forgotten-reddit-threads/"><u>2024 Approved Strategies for Swiftly Locating Forgotten Reddit Threads</u></a></li>
-<li><a href="https://discover-best.techidaily.com/6-maitres-nageurs-gratuits-pour-la-conversion-de-films-dvd-proceder-au-transfert-complet-du-contenu-principal-en-format-video/"><u>6 Maîtres-Nageurs Gratuits Pour La Conversion De Films DVD - Procéder Au Transfert Complet Du Contenu Principal en Format Vidéo</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1725287127474-windows-1110/"><u>专家选择：Windows 11/10最佳视频编码工具之一——速度和安全并重的十大解决方案</u></a></li>
-<li><a href="https://discover-best.techidaily.com/comment-defaire-gravure-et-transferer-en-securite-le-contenu-dun-dvd-avec-systemes-windows-ou-macos/"><u>Comment Défaire Gravure Et Transférer en Sécurité Le Contenu D'un DVD Avec Systèmes Windows Ou MacOS</u></a></li>
-<li><a href="https://discover-best.techidaily.com/effiziente-workaround-und-substitute-fur-ein-nicht-funktionierendes-handbrake-auf-windows-11-erfahrbare-anleitung/"><u>Effiziente Workaround Und Substitute Für Ein Nicht Funktionierendes HandBrake Auf Windows 11 - Erfahrbare Anleitung</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elite-selection-of-10-a-list-camera-lenses/"><u>Elite Selection of 10 A-List Camera Lenses</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-infinix-hot-40-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Infinix Hot 40 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-no-tripod-path-to-flawless-images/"><u>In 2024, The No-Tripod Path to Flawless Images</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-honor-play-7t-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Honor Play 7T to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-nokia-105-classic-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Nokia 105 Classic Phone FRP Lock</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcome-windows-11-update-obstacle-with-code-0x800f0922-fixes/"><u>Overcome Windows 11 Update Obstacle with Code 0X800F0922 Fixes</u></a></li>
-<li><a href="https://discover-best.techidaily.com/reproduccion-de-videos-av1-en-la-plataforma-plex-guia-rapida-y-facil/"><u>Reproducción De Vídeos AV1 en La Plataforma Plex - Guía Rápida Y Fácil</u></a></li>
-<li><a href="https://discover-best.techidaily.com/title-mp4-compressor-minimize-archivo-size-maintaining-highest-quality-possible/"><u>Title: MP4 Compressor: Minimize Archivo Size Maintaining Highest Quality Possible</u></a></li>
-<li><a href="https://discover-best.techidaily.com/top-freeware-fur-h265hevc-hd-videos-im-jahr-2022-aktuelle-auswahl/"><u>Top Freeware Für H.265/HEVC HD-Videos Im Jahr 2022 - Aktuelle Auswahl</u></a></li>
-<li><a href="https://discover-best.techidaily.com/ultimate-guide-selecting-the-best-lossless-video-compressors-for-smaller-files-full-quality-retention/"><u>Ultimate Guide: Selecting the Best Lossless Video Compressors for Smaller Files, Full-Quality Retention</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/unlock-your-iphone-14-pro-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your iPhone 14 Pro in Minutes with ICCID Code Everything You Need to Know</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1725284635789-winx-dvd-digiarty/"><u>WinX DVDを活用するための包括的なガイド - Digiartyソフトウェア</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-reno-10-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo Reno 10 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-aesir-clash-dawn-of-the-gods-for-2024/"><u>[New] Aesir Clash Dawn of the Gods for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-finding-the-right-free-srt-translation-for-you-our-8-picks/"><u>[New] Finding the Right FREE SRT Translation for You – Our #8 Picks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-vlogging-hurdles-how-to-triumph-over-ten-common-obstacles/"><u>[New] In 2024, Vlogging Hurdles How to Triumph Over Ten Common Obstacles</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-realtime-replay-recorder/"><u>[New] RealTime Replay Recorder</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-camcorders-for-high-quality-podcasts/"><u>[Updated] Ultimate Camcorders for High-Quality Podcasts</u></a></li>
+<li><a href="https://discover-best.techidaily.com/6googletop6/"><u>【ベスト6】Google検索にも登場！人気の無料サウンドセパレーションツールTOP6</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/descubra-os-mais-famosos-aplicativos-para-capturar-screenshots-on-line-ranking-dos-11-primeiros-gratuitos/"><u>Descubra Os Mais Famosos Aplicativos Para Capturar Screenshots On-Line - Ranking Dos 11 Primeiros Gratuitos</u></a></li>
+<li><a href="https://discover-best.techidaily.com/download-le-logiciel-dia-de-video-winx-compatible-avec-vos-smartphones-ios-and-android/"><u>Download Le Logiciel D'IA De Vidéo WinX Compatible Avec Vos Smartphones iOS & Android</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-tips-permanently-clear-personal-info-from-your-iphone-device/"><u>Expert Tips: Permanently Clear Personal Info From Your iPhone Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/fbx-gameplay-snapshot-techniques-for-2024/"><u>FBX Gameplay Snapshot Techniques for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guia-paso-a-paso-para-grabar-archivos-iso-en-un-dvd-usando-windows-11-8-o-7/"><u>Guía Paso a Paso Para Grabar Archivos ISO en Un DVD Usando Windows 11, 8 O 7</u></a></li>
+<li><a href="https://discover-best.techidaily.com/master-the-art-of-compressing-videos-shrink-files-to-less-than-half-their-original-size-without-compromising-quality/"><u>Master the Art of Compressing Videos: Shrink Files to Less Than Half Their Original Size Without Compromising Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-console-adventures-on-the-stellar-asus-vg245h-display/"><u>Master Your Console Adventures on the Stellar Asus VG245H Display</u></a></li>
+<li><a href="https://discover-best.techidaily.com/scopri-come-fare-una-copia-sicura-di-filmati-su-dvd-in-pochissimo-tempo-senza-compromettere-la-qualita-passi-semplici-per-un-back-up-efficiente/"><u>Scopri Come Fare Una Copia Sicura Di Filmati Su DVD in Pochissimo Tempo (Senza Compromettere La Qualità): Passi Semplici per Un Back-Up Efficiente</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725290365199-vobwindows-11/"><u>VOBファイルをWindows 11環境下でスムーズに楽しむためのガイド - 再生できないときのトラブルシューティング方法</u></a></li>
+<li><a href="https://discover-best.techidaily.com/winxvideo-aiand/"><u>WinXvideo AIでアップグレード:最高のビデオ&写真画質改善技術集</u></a></li>
 </ul></div>
 

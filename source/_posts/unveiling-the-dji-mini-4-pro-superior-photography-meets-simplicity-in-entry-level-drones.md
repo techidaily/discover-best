@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the DJI Mini 4 Pro: Superior Photography Meets Simplicity in Entry-Level Drones"
-date: 2024-09-29T17:30:02.035Z
-updated: 2024-09-30T17:44:44.609Z
+date: 2024-10-05T20:47:37.625Z
+updated: 2024-10-11T20:23:58.621Z
 tags:
   - product-reviews
 categories:
@@ -81,16 +81,22 @@ Expand
 
 [$1159 at Amazon](https://www.amazon.com/DJI-Controller-Mini-Drone-Intelligent-Batteries/dp/B0CFLKK7QS/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2000738&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fdji-mini-4-pro-review%2F&asc%5Fcampaign=Affiliate) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Design and Features: Size Matters
 
 ![DJI Mini 4 Pro and Controller Laid in the Grass](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/the-dji-mini-4-pro-and-its-controller-laid-in-the-grass-2jpg_53204101908_o.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Hannah Stryker / How-To Geek
 
@@ -101,6 +107,19 @@ Hannah Stryker / How-To Geek
  The DJI Mini 4 Pro impresses with its size and weight. With its propellers folded, it measures about 5.86 inches long and 3.66 inches wide. With the extended battery, it weighs just 303.5 grams. Of course, [the FAA](https://www.faa.gov/uas/getting%5Fstarted/register%5Fdrone) and certain states require drones with a takeoff weight of 250g or greater to be [registered](https://www.dji.com/newsroom/news/registering-your-dji-drone-what-you-need-to-know). It's a simple process, but something to keep in mind when using the extended battery versus the standard battery, which has less flight time, but keeps the drone under the 250g threshold.
 
 ![DJI MIni 4 Pro, RC 2 remote controller, and storage bag on a wood tabletop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/the-carrying-case-for-the-dji-mini-4-projpg_53202917042_o-1.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Hannah Stryker / How-To Geek
 
@@ -127,10 +146,10 @@ The DJI Mini 4 Pro Fly More Combo Plus (DJI RC 2). The storage bag is not shown.
  When a battery is inserted in the drone, it can be charged via its own USB-C port, with the same type of indicator lights and power button found on the charging station. The RC 2 remote controller charges and works the same and has up to three hours of battery life.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Setting Up: Beginner Friendly
@@ -154,10 +173,10 @@ Hannah Stryker / How-To Geek
  As with the drone, I found the build quality of the RC 2 to be solid, ergonomic, and intuitively designed. Although the chance of a crash landing is low, I was never concerned that the drone wouldn't hold up to the occasional accident nor the RC 2 to the occasional drop.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  The Apps: Multiple Options
@@ -177,13 +196,6 @@ Bill Loguidice / How-To Geek
 ##  Flight Performance: Easy Does It
 
 ![DJI Mini 4 Pro in flight at a park](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/2023-10-13-17-24-44-1.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
 
@@ -206,6 +218,13 @@ Bill Loguidice / How-To Geek
  Cine is based on Normal Mode, but with a limited flight speed, making the drone more stable during filming. This mode created a more stable video image for me, relying on the gimbal less, but didn't allow for as quick drone movements. It's the type of mode that I can see those with professional use cases for the photos and videos leaning on the most.
 
  As expected from any high-performance device with a battery, after even 10 minutes of flight, the drone does get warm to the touch. It's the same for the RC 2 remote controller, although neither ever becomes uncomfortably hot.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Video Performance: A 4K Powerhouse
 
@@ -243,13 +262,6 @@ DJI Mini 4 Pro Wide-Angle Lens
 
 ![Photo from the DJI Mini 4 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/dji_20231010155403_0008_d.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Bill Loguidice / How-To Geek
 
 A photo from the DJI Mini 4 Pro.
@@ -262,13 +274,6 @@ A photo from the DJI Mini 4 Pro.
 
 ![DJI Mini 4 Pro in flight above grass](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/2023-10-10-15-46-54-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Bill Loguidice / How-To Geek
 
  While the price point is competitive, there are still no-name drones that replicate a lot of the same features for a much lower cost. As such, it's critical that the Mini 4 Pro prioritize build quality, ease of setup, intuitive control, image quality, and support. In that regard, DJI has succeeded.
@@ -278,6 +283,13 @@ Bill Loguidice / How-To Geek
  In just a little over a decade after the first consumer-ready drones hit the market, DJI has created what just may be the first such product truly ready for the mainstream. Regardless of your personal skill level, the DJI Mini 4 Pro does just about everything you would want out of a drone in an incredibly compact, convenient, and highly functional package.
 
 ![DJI Mini 4 Pro and RC 2 remote control on a white background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/617rfzwf0fl-_ac_sl1500_.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #####  DJI Mini 4 Pro
 
@@ -303,18 +315,18 @@ The DJI Mini 4 Pro does just about everything you would want out of a drone in a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-ultimate-guide-to-10-premium-vector-websites/"><u>[New] 2024 Approved Ultimate Guide to 10 Premium Vector Websites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-four-pillars-of-mobile-video-acquisition-igtv-edition/"><u>[Updated] Four Pillars of Mobile Video Acquisition IGTV Edition</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-melodic-content-on-instagram-for-2024/"><u>[Updated] The Ultimate Guide to Melodic Content on Instagram for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/avi-vs-mp4-formats-a-comprehensive-guide-to-understanding-their-differences/"><u>AVI Vs. MP4 Formats - A Comprehensive Guide to Understanding Their Differences</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-resolve-msodll-file-missing-error-on-your-computer/"><u>How to Resolve 'mso.dll File Missing' Error on Your Computer</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-vivo-v30-lite-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Vivo V30 Lite 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-g-5g-2023-phone-without-password-by-drfone-android/"><u>How To Unlock Motorola Moto G 5G (2023) Phone Without Password?</u></a></li>
-<li><a href="https://discover-best.techidaily.com/kostenlose-dvd-regionskodierungsoberwindung-fuhren-sie-eine-auslandische-dvd-auf-windows-10-8-oder-7-kostenlos-um/"><u>Kostenlose DVD-Regionskodierungsoberwindung - Führen Sie Eine Ausländische DVD Auf Windows 10, 8 Oder 7 Kostenlos Um</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-video-capture-in-adobe-presenter-for-2024/"><u>Mastering Video Capture in Adobe Presenter for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/pcdvd-2023/"><u>PCを使わない方法でレンタルDVDを複製する - 最新ガイド記事 (2023年生まれの映像専門家による解説)</u></a></li>
-<li><a href="https://games-able.techidaily.com/psp-console-steam-controller-adaptation/"><u>PSP Console: Steam Controller Adaptation</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-top-10-mac-video-tag-editors-for-seamless-organization/"><u>Updated 2024 Approved Top 10 Mac Video Tag Editors for Seamless Organization</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1725287563235-winxvideo-ai-ai/"><u>Winxvideo AI - 如何以AI技術進行螢幕和線上攝影會錄制</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-no-cash-to-youtube-wealth-unlocking-earnings-at-the-500-subs-level-for-2024/"><u>[New] From No Cash to YouTube Wealth Unlocking Earnings at the 500 Subs Level for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revolutionizing-the-music-creation-process-through-magix-mentor-x/"><u>[New] Revolutionizing the Music Creation Process Through Magix Mentor X</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-key-to-attracting-views-youtube-image-marketing/"><u>[Updated] 2024 Approved The Key to Attracting Views YouTube Image Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-5-non-youtube-editing-tools-for-vids/"><u>[Updated] In 2024, Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://extra-information.techidaily.com/capture-striking-shots-using-leading-lines-iphone/"><u>Capture Striking Shots Using Leading Lines (iPhone)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-infinix-gt-10-pro-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Infinix GT 10 Pro FRP Without Computer</u></a></li>
+<li><a href="https://discover-best.techidaily.com/losegendig-verlustfreier-dvd-rippen-garantiert-unverandert-qualitativ-hochwertig/"><u>Losegendig Verlustfreier DVD-Rippen - Garantiert Unverändert Qualitativ Hochwertig</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mejores-extractoras-libre-de-coste-para-dvd-en-mac-os-big-sur-ranking-actualizado-2020/"><u>Mejores Extractoras Libre De Coste Para DVD en Mac OS Big Sur - Ranking Actualizado 2020</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-now-available-on-huawei-appgallery/"><u>Mondly Is Now Available on Huawei AppGallery</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-motorola-moto-g04-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Motorola Moto G04? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-6-proven-artificial-intelligence-tools-for-superior-video-enhancement/"><u>Top 6 Proven Artificial Intelligence Tools for Superior Video Enhancement</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-convertisseur-hevc-encodeur-video-le-plus-efficace-pour-windows-11-et-mac/"><u>Top Convertisseur HEVC - Encodeur Vidéo Le Plus Efficace Pour Windows 11 Et Mac</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Vivo S18 Pro | Dr.fone</u></a></li>
 </ul></div>
 
