@@ -1,7 +1,7 @@
 ---
 title: Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
-date: 2024-10-18T16:09:02.461Z
-updated: 2024-10-23T17:30:28.855Z
+date: 2024-10-23T10:52:42.183Z
+updated: 2024-10-29T12:43:15.041Z
 tags:
   - product-reviews
 categories:
@@ -82,16 +82,16 @@ Expand
 
 [$279.99 at B&H Photo Video](https://www.bhphotovideo.com/c/product/1783278-REG/boox%5Fopc1084r%5F6%5F13%5Fpalma%5Fe%5Fink%5Ftablet.html/BI/22163/KBID/28708/SID/UUhtgUeUpU2000937?ap=y&amp%3Bsmp=y&amp%3Bsrsltid=AfmBOorHmCCXNHSZEAzABaZ%5FpFFt2aB6PPotGsLhGms2XyMsNtwLo1r9pIQ) [$279.99 at Boox](https://shareasale.com/r.cfm?b=2531318&u=4338022&m=153349&urllink=https%3A%2F%2Fbluettieu.pxf.io%2Fnlgoka&afftrack=techidaily) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  The Design of a Palm-Sized EReader
 
 ![button and sd card tray on the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/button-and-sd-card-tray-on-the-onyx-boox-palma_53279720818_o.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -108,21 +108,22 @@ Sergio Rodriguez / How-To Geek
  A left-side button can be customized, but, by default, is set to refresh the screen when pressed. All these items worked together well to form an ultra-compact reading device. If the width feels too narrow, you can hold it sideways and let the text rotate. I used this layout occasionally and found it helpful for certain styles of writing which had longer sentences.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Boox Palma Software: A Small E-Paper Tablet
 
 ![home screen of the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/home-screen-of-the-onyx-boox-palma_53278546217_o.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -132,16 +133,16 @@ Sergio Rodriguez / How-To Geek
 
  All these things are possible if you want them badly enough. I’m happy they’re available to address a wide range of people’s needs. Importantly, though, those things didn’t get in the way of the Palma being a solid, Wi-Fi-connected eReader for me.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Is the Boox Palma a Phone?
 
 ![Comparing the onyx boox palma to the size of the Samsung Galaxy S22 Ultra.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/comparing-the-onyx-boox-palma-to-the-size-of-the-samsung-galaxy-s22-ultra_53279788214_o.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -162,13 +163,6 @@ The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
 ##  Palma Price and Availability
 
  The Boox Palma is available now in black or white for $279.99\. It comes with a free silicon case. Of the few e-paper Boox devices in the 6-7-inch range, the Palma is the most expensive. It comes in just above the Boox Page. In this case, smallness is a feature that costs a premium.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  Should You Buy the Boox Palma?
 
@@ -251,21 +245,22 @@ Expand
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-top-tier-tactics-for-crafting-fbs-most-watched-videos/"><u>[Updated] 2024 Approved Top-Tier Tactics for Crafting #FB's Most Watched Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-guide-to-elevating-your-channel-brand-growth-in-viewers-for-2024/"><u>[Updated] Step-by-Step Guide to Elevating Your Channel Brand, Growth in Viewers for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-free-video-meeting-checklist-with-desktop-views/"><u>[Updated] Ultimate Free Video Meeting Checklist - With Desktop Views</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725285420831-dvd-winx-dvd-ripper-platinum/"><u>【継続開発】現行DVDソフトを待望! WinX DVD Ripper Platinum - 完全無料ダウンロードでチェック!</u></a></li>
-<li><a href="https://discover-best.techidaily.com/best-5-top-video-converters-for-mac-an-ultimate-guide-beyond-xmedia-recode/"><u>Best 5 Top Video Converters for Mac: An Ultimate Guide Beyond XMedia Recode</u></a></li>
-<li><a href="https://discover-best.techidaily.com/comprehensive-iphone-8-assessment-benefits-and-drawbacks-compared-with-iphone-x/"><u>Comprehensive iPhone 8 Assessment: Benefits and Drawbacks Compared with iPhone X</u></a></li>
-<li><a href="https://discover-best.techidaily.com/comprehensive-tutorial-on-using-macx-dvd-ripper-pro-with-windows-convert-dvds-into-mp4aviflv-formats-for-desktop-and-mobile-devices/"><u>Comprehensive Tutorial on Using MacX DVD Ripper Pro with Windows: Convert DVDs Into MP4/AVI/FLV Formats for Desktop and Mobile Devices</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a15-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A15 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-oppo-a38-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo A38 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionize-your-movie-experience-with-free-apps/"><u>In 2024, Revolutionize Your Movie Experience with Free Apps</u></a></li>
-<li><a href="https://discover-best.techidaily.com/mastering-video-edits-the-complete-imovie-tutorial-for-apple-users/"><u>Mastering Video Edits: The Complete iMovie Tutorial for Apple Users</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/specific-heat-plays-an-important-role-in-climate-science-as-it-affects-how-quickly-land-or-water-bodies-can-warm-up-or-cool-down-under-sunlight-or-during-ni639/"><u>Specific Heat Plays an Important Role in Climate Science as It Affects How Quickly Land or Water Bodies Can Warm up or Cool Down Under Sunlight or During Nighttime</u></a></li>
-<li><a href="https://discover-best.techidaily.com/step-by-step-guide-on-modifying-the-handbrake-ios-preset-settings-for-direct-dvd-conversion-to-your-idevice/"><u>Step-by-Step Guide on Modifying the HandBrake iOS Preset Settings for Direct DVD Conversion to Your iDevice</u></a></li>
-<li><a href="https://discover-best.techidaily.com/ultimate-macx-hd-pro-video-editor-and-converter-for-windows-11-convert-movies-to-phones-and-tablets-with-ease/"><u>Ultimate MacX HD Pro Video Editor & Converter for Windows 11 - Convert MOVIES to Phones and Tablets with Ease!</u></a></li>
-<li><a href="https://discover-best.techidaily.com/understanding-the-limitations-of-the-ipad-promini-ns-video-playback-capabilities-supported-codecs-explored/"><u>Understanding the Limitations of the iPad Pro/Mini N's Video Playback Capabilities - Supported Codecs Explored</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-the-lawsuit-how-sarah-silverman-and-peers-challenge-ai-leaders-openai-and-meta/"><u>Unveiling the Lawsuit: How Sarah Silverman and Peers Challenge AI Leaders OpenAI & Meta</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-precision-close-up-techniques-with-kinemaster-software/"><u>[Updated] 2024 Approved Precision Close-Up Techniques with Kinemaster Software</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-voice-memo-creation-on-apple-devices/"><u>[Updated] Effortless Voice Memo Creation on Apple Devices</u></a></li>
+<li><a href="https://discover-best.techidaily.com/high-performance-smartwatches-mastering-watchos-and-wear-os-at-60-fps-insights-from-the-abbyy-tech-team/"><u>High-Performance Smartwatches: Mastering WatchOS & Wear OS at 60 FPS - Insights From the ABBYY Tech Team</u></a></li>
+<li><a href="https://discover-best.techidaily.com/introducing-abbyy-finereader-server-the-new-face-of-previously-known-abbyy-recognition/"><u>Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/leveraging-filters-masks-and-effects-to-elevate-conference-calls-for-2024/"><u>Leveraging Filters, Masks & Effects to Elevate Conference Calls for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/luxembourg-based-deloitte-enhances-client-services-through-strategic-abbyy-collaboration/"><u>Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration</u></a></li>
+<li><a href="https://discover-best.techidaily.com/master-your-nighttime-routine-with-aabbs-insights-on-call-blocking-restful-sleep-and-selecting-the-perfect-film/"><u>Master Your Nighttime Routine with AABB's Insights on Call Blocking, Restful Sleep & Selecting the Perfect Film</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maximizing-business-outcomes-with-cutting-edge-ai-and-content-analytics-expertise-from-the-abbyy-perspective/"><u>Maximizing Business Outcomes with Cutting-Edge AI and Content Analytics | Expertise From the ABBYY Perspective</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/maximizing-storage-on-your-iphone-a-step-by-step-guide-to-free-up-gigabytes-techtips/"><u>Maximizing Storage on Your iPhone: A Step-by-Step Guide to Free Up Gigabytes | TechTips</u></a></li>
+<li><a href="https://discover-best.techidaily.com/model-a-1908-6-fixed-rear-sight-no-firing-pin-block-or-safety-feature-unfluted-grip/"><u>Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimize-your-enterprise-transformation-journey-through-process-intelligence-techniques/"><u>Optimize Your Enterprise Transformation Journey Through Process Intelligence Techniques</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimizing-online-presence-with-cookiebot-technology/"><u>Optimizing Online Presence with Cookiebot Technology</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-nokia-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Nokia</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/real-mac-users-review-in-video-format/"><u>Real Mac Users Review in Video Format</u></a></li>
+<li><a href="https://discover-help.techidaily.com/resolving-the-mystery-temporary-blackout-on-windows-11-screens-discover-15-effective-solutions/"><u>Resolving the Mystery: Temporary Blackout on Windows 11 Screens - Discover 15 Effective Solutions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-rated-apple-computers-of-2024-expert-reviews-by-zdnet/"><u>Top-Rated Apple Computers of 2024 - Expert Reviews by ZDNet</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-dac-should-it-be-part-of-your-audio-setup/"><u>Understanding DAC: Should It Be Part of Your Audio Setup?</u></a></li>
 </ul></div>
 
