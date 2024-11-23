@@ -1,7 +1,7 @@
 ---
 title: "Effortless Video Conversion with the Free WinX Program: Rip Your DVDs to MP4 on Windows Tenth Edition"
-date: 2024-11-07T20:36:01.991Z
-updated: 2024-11-13T03:01:02.961Z
+date: 2024-11-19T06:04:20.607Z
+updated: 2024-11-22T21:07:39.800Z
 categories:
   - winxdvd
 thumbnail: https://thmb.techidaily.com/43e39de2530caaef8af78f1650abc11434992b40c432e7b5caac8bd0f3cdf48f.png
@@ -27,13 +27,6 @@ To rip DVD to MKV, follow these simple steps:
 
 ![rip dvd](https://www.winxdvd.com/resource/../seo-img/general-img/seobanner-dvd.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Rip DVDs to MKV Losslessly with Original Menus, Subtitles...
 
 ![](https://www.winxdvd.com/resource/../seo-img/general-img/face-dp-111.png) [Donna Peng](https://tools.techidaily.com/winxdvd/products/) 
@@ -42,12 +35,20 @@ Updated on February 28, 2024
 
 When a DVD owner converts a disc to a digital format, he may want to keep all the content of the DVD if possible. MKV is the format that will contain all the video, audio, subtitle tracks, chapters, and menus of a DVD without quality loss. And MKV can provide better compatibility than some other formats like ISO image or DVD VIDEO\_TS folder. But you may don't want to transcode a DVD to MKV and lose some video quality. You may just want to extract the DVD video to MKV format, untouched. In this post, we will show you the right way to rip DVD to MKV without re-encoding.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easily Rip DVDs to MKV without Quality Loss 
 
 [WinX DVD Ripper Platinum](https://tools.techidaily.com/winxdvd/products/) \- easily rip DVD to MKV, ISO image, MPG, and Video\_TS folder in **1:1 quality**. It's able to remove region codes, CSS, Sony ARccOS, Disney X-Project, and other **copy protections** on the DVD and extract the MKV video from DVDs with **all subtitles**, menus, video, audio, and chapters without re-encoding. Convert a DVD to MKV in **5 minutes** only!   
 Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 350+ video formats and device profiles. 
 
 [![](https://www.winxdvd.com/resource/../seoimg/win.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [![](https://www.winxdvd.com/resource/../seoimg/mac.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [Free Download](https://tools.techidaily.com/winxdvd/products/) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2024 Best Ways to Freely Rip DVDs to MKV on Windows 10/11 & Mac
 
@@ -60,33 +61,16 @@ Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 
 | **Movavi Video Converter** | Rip unprotected DVDs to MKV and various other formats with fast speed.                                               | It can't rip protected DVDs to MKV.                                                   | [Read More](https://tools.techidaily.com/winxdvd/products/)    |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Reasons for Ripping DVD to MKV
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a11.png)1\. Ripping DVD will Remove DVD Copy Protections** 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Similar to Blu-ray, DVD disc is also equipped with a variety of protections to prevent DVD content from illegal use. The most popular encryption techs include CSS encryption, Sony ARccOS encryption, RCE Region protection, Disney X-project DRM, region code etc. DVD rippers can bypass DVD copy protections and deliver a DRM-free file. But sometimes you may encounter errors while working with [DVD ripping freeware](https://tools.techidaily.com/winxdvd/products/) like MakeMKV, HandBrake and Freemake Video Converter. 
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a10.png)2\. DVD to MKV Backup can Reserves All DVD Content** 
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you have ever [encoded DVD movies into MP4](https://tools.techidaily.com/winxdvd/products/), AVI, or MPEG format, and been slightly frustrated with the loss of DVD extra elements, then you can switch to MKV as the DVD backup format. MKV is able to contain all detailed chapter information, sub-chapters, titles, multiple audio and video streams, subtitles, attachments and custom metadata.
 
@@ -127,6 +111,10 @@ After the DVD content is fully imported, the ripper will bypass copy protection 
 
 ![WinX DVD Ripper Platinum - Edit](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/edit-add-external-subtitle-700.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4\. Start DVD to MKV Ripping**
 
 If you do not have other advanced and personalized settings, just hit "**RUN**" to beging DVD to MKV ripping. To ensure a stable DVD to MKV ripping process with no error, you're suggested to choose "**Safe Mode**".
@@ -146,6 +134,10 @@ Now let's download MakeMKV and learn how to convert DVD to MKV with MakeMKV.
 **Step 1.** Insert target DVD into your DVD drive. Launch MakeMKV and click the DVD to hard drive button to import the DVD.
 
 ![Extract DVD to MKV with MakeMKV](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/makemkv-open-dvd.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2.** Select the titles, audios, and subtitles you want to preserve.
 
@@ -171,10 +163,7 @@ First of all, let's learn how to download and install libdvdcss for Handbrake:
 ![Rip DVD to MKV with HandBrake and libdvdcss](https://www.winxdvd.com/resource/../seo-img/handbrake-troubleshoot-tips/libdvdcss.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After you finish the installation of HandBrake and libdvdcss, you can follow the steps to rip DVD to MKV with HandBrake.
@@ -207,10 +196,7 @@ Now let's learn how to rip DVDs to MKV usingi VLC?
 ![VLC protected DVD to MKV](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/rip-chapters-off-dvd-vlc.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3.** Click the Convert/Save button and then you'll need to select the output profile. Open the Profile dropdown menu and check if there is an MKV profile. By default, VLC will choose to rip DVDs to "Video - H.264 + MP3 (MP4)". If there is no MKV option, click the gear button next to it and under Encapsulation, choose MKV and save it. 
@@ -218,6 +204,10 @@ Now let's learn how to rip DVDs to MKV usingi VLC?
 **Step 4.** Choose an output destination folder and then click Start. VLC will then begin ripping DVDs to MKV. 
 
 ![Rip DVD to MKV with VLC](https://www.winxdvd.com/resource/../seo-img/rip-dvd-mp4/vlc-output.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6\. How to Rip DVD to MKV with Movavi Video Converter
 
@@ -235,13 +225,6 @@ Now let's learn how to rip DVDs to MKV usingi Movavi Video Converter?
 
 ![rip DVDs to MKV Movavi](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/movavi-700.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## In Conclusion
 
 DVD to MKV converters play a valuable role in the digital transformation of physical media. These converters provide users with a convenient and efficient way to convert DVD content into the widely supported MKV format, preserving both video and audio quality. The flexibility offered by MKV, including support for multiple audio and subtitle tracks, makes it a popular choice for users looking to create digital backups or enjoy their DVD content on various devices. Let's select the best fit DVD to MKV converter and start converting DVD to MKV right now!
@@ -253,13 +236,14 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
 * [Best Preset Settings for HandBrake DVD to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * [\[2024\] How to Free Convert DVD Video\_TS to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -276,24 +260,17 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-comprehensive-insights-into-polarrs-photo-tools/"><u>[New] Comprehensive Insights Into Polarr's Photo Tools</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1-professionelle-winxvideo-ai-vollversion-kaufen-exklusives-upgrade-fur-premiumbenutzer/"><u>1. Professionelle WinxVideo-AI Vollversion Kaufen: Exklusives Upgrade Für Premiumbenutzer</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1-ultimate-guide-to-manycam-top-notch-live-streaming-and-virtual-webcams/"><u>1. Ultimate Guide to ManyCam: Top-Notch Live Streaming and Virtual Webcams</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-xiaomi-mix-fold-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Xiaomi Mix Fold 3 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/beat-netflix-blues-an-expert-strategy-for-eliminating-error-code-nw-1-19/"><u>Beat Netflix Blues: An Expert Strategy for Eliminating Error Code NW- 1-19</u></a></li>
-<li><a href="https://discover-best.techidaily.com/best-features-of-manycam-innovative-live-video-recording-and-online-presentation-solutions/"><u>Best Features of ManyCam: Innovative Live Video Recording and Online Presentation Solutions</u></a></li>
-<li><a href="https://discover-best.techidaily.com/capture-and-broadcast-your-world-effortlessly-with-manycams-virtual-webcam-technology/"><u>Capture and Broadcast Your World Effortlessly with ManyCam's Virtual Webcam Technology</u></a></li>
-<li><a href="https://discover-best.techidaily.com/download-no-cost-dvd-extractor-tool-for-mac-transform-your-dvds-into-mobile-friendly-mp4-mov-and-hevc-files/"><u>Download No-Cost DVD Extractor Tool for Mac: Transform Your DVDs Into Mobile-Friendly MP4, MOV, and HEVC Files</u></a></li>
-<li><a href="https://discover-best.techidaily.com/efficient-heic-to-jpeg-transformation-the-ultimate-guide-on-using-a-heic-converter/"><u>Efficient HEIC-to-JPEG Transformation: The Ultimate Guide on Using a HEIC Converter</u></a></li>
-<li><a href="https://discover-best.techidaily.com/elevate-your-broadcasting-discover-the-power-of-manycam-for-professional-live-video/"><u>Elevate Your Broadcasting: Discover the Power of ManyCam for Professional Live Video</u></a></li>
-<li><a href="https://discover-best.techidaily.com/enhance-your-broadcasts-with-manycam-leading-live-video-software-for-customizable-virtual-cameras/"><u>Enhance Your Broadcasts with ManyCam: Leading Live Video Software for Customizable Virtual Cameras</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-lost-data-on-apple-iphone-6s-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data on Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-crafting-the-perfect-track-heres-our-selection-of-the-best-8-chrome-os-compatible-daws-musicians/"><u>In 2024, Crafting the Perfect Track? Heres Our Selection of the Best 8 Chrome OS-Compatible DAWs Musicians</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-iphone-11-pro-max-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your iPhone 11 Pro Max Without a Home Button</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-samsung-galaxy-s24-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Samsung Galaxy S24</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-complete-inshot-editors-handbook-to-smoothness-for-2024/"><u>The Complete Inshot Editor's Handbook to Smoothness for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/transcodificacion-sin-perdidas-de-calidad-conversion-de-hevc-a-mp4-explicada/"><u>Transcodificación Sin Pérdidas De Calidad - Conversión De HEVC a MP4 Explicada</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723002083399-unstick-your-minecraft-loading-screen-dilemma-with-these-proven-fixes/"><u>Unstick Your Minecraft Loading Screen Dilemma with These Proven Fixes!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-expedite-your-experience-quick-iphone-time-lapse/"><u>[New] In 2024, Expedite Your Experience Quick iPhone Time-Lapse</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-simplicity-in-story-construction-for-2024/"><u>[Updated] Simplicity in Story Construction for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-yts-best-practices-for-choosing-images-that-drive-view-count-updates/"><u>2024 Approved YT's Best Practices for Choosing Images That Drive View Count Updates</u></a></li>
+<li><a href="https://discover-best.techidaily.com/come-clonare-i-tuoi-dischi-dvd-per-plex-in-soli-tre-facili-passaggi-tecniche-da-provenire-nel-2023/"><u>Come Clonare I Tuoi Dischi DVD per Plex in Soli Tre Facili Passaggi - Tecniche Da Provenire Nel 2023</u></a></li>
+<li><a href="https://discover-best.techidaily.com/easy-steps-for-converting-and-watching-movie-dvds-on-roku-using-a-windowsmac-desktop/"><u>Easy Steps for Converting and Watching Movie DVDs on Roku Using a Windows/Mac Desktop</u></a></li>
+<li><a href="https://windows11.techidaily.com/harness-the-power-of-windows-11-expert-level-docx-to-pdf-processes/"><u>Harness the Power of Windows 11: Expert-Level DOCX to PDF Processes</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-error-cant-find-appropriate-printer-driver/"><u>How to Fix Windows Error: Can't Find Appropriate Printer Driver</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-samsung-galaxy-m14-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Samsung Galaxy M14 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://discover-best.techidaily.com/los-mejores-programas-gratis-para-clonar-dvds-una-lista-completa-de-los-6-mas-populares/"><u>Los Mejores Programas Gratis Para Clonar DVDs - Una Lista Completa De Los 6 Más Populares</u></a></li>
+<li><a href="https://discover-best.techidaily.com/scopri-il-miglior-codificatore-per-i-tuoi-file-mp4-nel-2023-strategie-di-compressione-efficienti/"><u>Scopri Il Miglior Codificatore per I Tuoi File MP4 Nel 2023: Strategie Di Compressione Efficienti</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722872388962-whats-next-for-google-the-rumored-pixel-n-release-features-and-estimates/"><u>What's Next for Google: The Rumored Pixel N Release, Features and Estimates</u></a></li>
 </ul></div>
 

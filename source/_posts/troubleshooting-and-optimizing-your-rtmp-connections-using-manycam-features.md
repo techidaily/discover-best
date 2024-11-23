@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting & Optimizing Your RTMP Connections Using ManyCam Features
-date: 2024-11-07T16:29:42.466Z
-updated: 2024-11-13T20:40:32.757Z
+date: 2024-11-20T10:43:25.353Z
+updated: 2024-11-22T22:11:30.708Z
 tags:
   - product
   - solution
@@ -17,6 +17,10 @@ ManyCam Special – Up to 25% OFF Upgrade Now
 ## We're here to help!
 
 Search For ![Searching...](https://help.manycam.com/wp-content/themes/manycam_help_newdesign/img/loading.svg) Search 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. [Home](https://tools.techidaily.com/manycam/products/)
 2. [Live Streaming](https://tools.techidaily.com/manycam/products/)
@@ -600,16 +604,13 @@ The RTMP feature allows you to broadcast directly on Facebook, Twitch, USTREAM a
 
 For more information, please refer to this article: [how to stream to Facebook Live](https://tools.techidaily.com/manycam/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Twitch
 
 Please refer to this article: [how to stream to Twitch](https://tools.techidaily.com/manycam/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## USTREAM
 
@@ -621,13 +622,6 @@ Please see this short video tutorial showing how to set up a Live event.
 
 You can also check [YouTube’s official guide](https://support.google.com/youtube/answer/2474026?hl=en).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setting up ManyCam
 
 Note 
@@ -638,44 +632,21 @@ Click on the Stream button to set up your stream:
 
 ![](https://help.manycam.com/wp-content/uploads/2017/05/ManyCam-stream.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the opened window, you can either start streaming to YouTube or Facebook using predefined options available in ManyCam by default or create a new custom RTMP server for your broadcast. To properly set up your Facebook stream, [please refer to this article](https://tools.techidaily.com/manycam/products/). To set up YouTube Live, please follow [their official guide](https://support.google.com/youtube/answer/2474026?hl=en&ref%5Ftopic=9257984).
 
 ![](https://help.manycam.com/wp-content/uploads/2017/05/ManyCam-stream-06.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In case your preferred streaming platform is not on the list of predefined options, please proceed with adding a custom server:
 
 ![](https://help.manycam.com/wp-content/uploads/2017/05/ManyCam-stream-03-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here, please pick a name for your stream, and enter the server address and a stream key. These settings are provided by the streaming platform. Please refer to their manuals to find them.
 
 ![](https://help.manycam.com/wp-content/uploads/2017/05/ManyCam-stream-04.png)
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once you finished setting up your stream, simply press **Stream** to go live.
 
@@ -695,6 +666,10 @@ Please follow the steps below to troubleshoot this:
 
  Updated on October 6, 2022 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 
 
  Was this article helpful? 
@@ -707,6 +682,10 @@ Please follow the steps below to troubleshoot this:
 * [How to Stream on Facebook and YouTube Simultaneously](https://tools.techidaily.com/manycam/products/)
 * [How to adjust FPS rate in ManyCam](https://tools.techidaily.com/manycam/products/)
 * [How to stream to Twitch](https://tools.techidaily.com/manycam/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Contents
 
@@ -731,20 +710,24 @@ Please follow the steps below to troubleshoot this:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-essence-of-dji-inspire-2-distilled/"><u>[New] In 2024, The Essence of DJI Inspire 2 Distilled</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-secrets-to-successful-hash-tag-application-for-improved-campaigns-on-facebook/"><u>[Updated] Secrets to Successful Hash Tag Application for Improved Campaigns on Facebook</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/auditory-aesthetics-film-from-a-single-frame-for-2024/"><u>Auditory Aesthetics Film From a Single Frame for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/best-top-5-apple-device-friendly-audio-transformers-easily-switching-wma-and-wav-files-into-ipod-compatibility/"><u>Best Top 5 Apple Device-Friendly Audio Transformers: Easily Switching WMA and WAV Files Into iPod Compatibility</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-6-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 6 Video to Computer? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-xs-max-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone XS Max from iCloud</u></a></li>
-<li><a href="https://discover-best.techidaily.com/iosmacdvd/"><u>IOSデバイスにMacから動画・DVDコンテンツを転送して楽しむ方法</u></a></li>
-<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-nokia-c300-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Nokia C300 FRP Without Computer</u></a></li>
-<li><a href="https://discover-best.techidaily.com/macdvdmpegmp3-macx-dvd-to-mpeg-converter/"><u>Mac用無料DVDマガジンフリーダウンロード:Mpeg/Mp3への変換 - MacX DVD to MPEG Converter</u></a></li>
-<li><a href="https://discover-best.techidaily.com/seamless-transfer-of-tunes-moving-your-ipod-library-to-itunes-without-data-loss/"><u>Seamless Transfer of Tunes: Moving Your iPod Library to iTunes Without Data Loss</u></a></li>
-<li><a href="https://discover-best.techidaily.com/troubleshooting-guide-resolving-handbrake-and-vlc-20-compatibility-issues/"><u>Troubleshooting Guide: Resolving HandBrake and VLC 2.0 Compatibility Issues</u></a></li>
-<li><a href="https://discover-best.techidaily.com/uberwindung-von-dvd-sicherheitsmassnahmen-effiziente-strategien-fur-das-kopieren/"><u>Überwindung Von DVD-Sicherheitsmaßnahmen: Effiziente Strategien Für Das Kopieren</u></a></li>
-<li><a href="https://discover-best.techidaily.com/ultimate-guide-to-dvd-video-editing-techniques-for-cutting-joining-and-refining-your-discs-content/"><u>Ultimate Guide to DVD Video Editing: Techniques for Cutting, Joining, and Refining Your Disc's Content</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-mp4-to-mp3-fast-and-easy-conversion-with-these-top-tools/"><u>Updated MP4 to MP3 Fast and Easy Conversion with These Top Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-fast-track-to-1000-fans-through-captivating-content/"><u>[New] 2024 Approved Fast-Track To 1,000 Fans Through Captivating Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-picsart-remove-bg-comprehensive-tutorial/"><u>[New] Picsart Remove Bg Comprehensive Tutorial</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unique-iphone-photo-style-adding-dynamic-motion-effects-for-2024/"><u>[New] Unique iPhone Photo Style Adding Dynamic Motion Effects for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-from-monotonous-to-mesmerizing-grading-guidance-for-editors-for-2024/"><u>[Updated] From Monotonous to Mesmerizing Grading Guidance for Editors for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-free-video-capture-apps-exploring-the-leaders/"><u>[Updated] In 2024, Top Free Video Capture Apps – Exploring the Leaders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-procedure-of-ending-linkedin-services-and-deletion-process/"><u>2024 Approved Procedure of Ending LinkedIn Services and Deletion Process</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-simplify-images-remove-the-environmental-elements/"><u>2024 Approved Simplify Images Remove the Environmental Elements</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-ranked-zoonotic-patterns/"><u>2024 Approved Top-Ranked Zoonotic Patterns</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-science-of-perfectly-timed-episodes/"><u>In 2024, The Science of Perfectly Timed Episodes</u></a></li>
+<li><a href="https://discover-best.techidaily.com/innovative-ansatze-fur-banken-im-neuen-normal-digitales-zwillingsmodell-in-der-kreditbranche/"><u>Innovative Ansätze Für Banken Im Neuen Normal - Digitales Zwillingsmodell in Der Kreditbranche</u></a></li>
+<li><a href="https://discover-best.techidaily.com/integrating-hyperautomation-with-sap-cloud-revolutionizing-the-financial-industry-through-abbyy-solutions/"><u>Integrating Hyperautomation with SAP Cloud: Revolutionizing the Financial Industry Through ABBYY Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leading-car-components-producer-streamlines-payment-documentation-through-abbyy-automation-technology/"><u>Leading Car Components Producer Streamlines Payment Documentation Through ABBYY Automation Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/maximizing-online-success-with-advanced-cookiebot-features/"><u>Maximizing Online Success with Advanced Cookiebot Features</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimierte-kommunikationsoptimierung-fur-ecclesia-group-durch-den-einsatz-von-vereinfachten-losungen-von-abbyy/"><u>Optimierte Kommunikationsoptimierung Für Ecclesia Group Durch Den Einsatz Von Vereinfachten Lösungen Von ABBYY</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimisation-des-factures-de-lentreprise-avec-abbyy-et-sap-guide-detaille-pour-les-entreprises-rochling/"><u>Optimisation Des Factures De L'entreprise Avec ABBYY Et SAP: Guide Détaillé Pour Les Entreprises Röchling</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimized-with-advanced-analytics-the-strength-of-cookiebot-technology/"><u>Optimized with Advanced Analytics: The Strength of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/partnerschaft-zwischen-deloitte-luxemburg-und-abbyy-endet-pionierlosungen-zur-steigerung-der-prozessautomatisierung/"><u>Partnerschaft Zwischen Deloitte Luxemburg Und ABBYY Endet – Pionierlösungen Zur Steigerung Der Prozessautomatisierung</u></a></li>
+<li><a href="https://discover-best.techidaily.com/personalized-user-experience-with-cookiebot-technology/"><u>Personalized User Experience with Cookiebot Technology</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-for-beginners-channel-building-monetization-tactics-for-2024/"><u>YouTube for Beginners Channel Building, Monetization Tactics for 2024</u></a></li>
 </ul></div>
 

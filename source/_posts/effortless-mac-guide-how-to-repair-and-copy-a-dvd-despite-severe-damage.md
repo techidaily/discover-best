@@ -1,7 +1,7 @@
 ---
 title: "Effortless Mac Guide: How to Repair and Copy a DVD Despite Severe Damage"
-date: 2024-10-17T17:05:23.616Z
-updated: 2024-10-23T16:03:55.014Z
+date: 2024-11-18T09:33:31.717Z
+updated: 2024-11-22T23:17:19.167Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedca30e5d0f04cb4a458929e39.jpg
@@ -24,7 +24,16 @@ thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedc
 
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-fa.jpg)](https://www.facebook.com/sharer/sharer.php?u=https://www.macxdvd.com/mac-dvd-video-converter-how-to/copy-dvd-with-bad-sector.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-tw.jpg)](https://twitter.com/intent/tweet?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/copy-dvd-with-bad-sector.htm&text=)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-email.jpg)](https://www.macxdvd.com/mac-dvd-video-converter-how-to/mailto:info@example.com?&subject=&body=https://www.macxdvd.com/mac-dvd-video-converter-how-to/copy-dvd-with-bad-sector.htm)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/copy-dvd-with-bad-sector.htm&title=&summary=&source=)
 
@@ -35,6 +44,14 @@ _When backup some old DVDs, my DVD decrypter only can reach 75% and cannot go ah
 I has some brand new DVDs and when I tried to make digital copies (for legal use, I own them), I keep getting told the sectors are bad. why? Is there any solution to copy DVD with bad sector?
 
 ![List of Mac DVD decrypter software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/dvd-decrypter-mac.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What Caused Bad Sectors on DVD?
 
@@ -47,13 +64,6 @@ Bothered by the corrupted sector error when copying DVD? Want to know how to rep
 Actually, to backup DVD with damaged sector would be an easy task if you have a right DVD digitalizing software like [**MacX DVD Ripper Pro**](https://tools.techidaily.com/macxdvd/products/), which can rip DVD with unreadable sector easily and fix bad sector on DVD during backup process. If the inaccessible or unwriteable sector is irreparable, it would automatically skip the unusable part to guarantee smooth DVD playback afterwards. More strikingly, this solid [DVD decrypter software](https://tools.techidaily.com/macxdvd/products/) can bypass any DVD protection measures put by the film publishers effortlessly, no matter the [Sony ARccOS protection](https://tools.techidaily.com/macxdvd/products/), Disney protection, region code or general CSS. Below is the tutorial about [how to copy a DVD on a Mac](https://tools.techidaily.com/macxdvd/products/). 
 
 [Download for Mac](https://tools.techidaily.com/macxdvd/products/) [Download for PC](https://tools.techidaily.com/macxdvd/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Rip Copy Protected DVD without Read Error with MacX DVD Ripper Pro
 
@@ -95,13 +105,6 @@ ABOUT THE AUTHOR
 
 [Bella Brown ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in1.jpg)](https://www.linkedin.com/in/bella-brown-920145104/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Bella has been working with DVD digitization for over 12 years. She writes articles about everything related to DVD, from disc drive, DVD copyright protection, physical structure, burning and backup tips. The unceasing passion of DVD movies helps her build a rich DVD library and ensure a practical solution to address almost all possible DVD issues. Bella is also a crazy fan for Apple products.
 
 Related Articles
@@ -112,6 +115,10 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [How to Fix Handbrake Won't Scan Bad Sector Error in DVD Ripping](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
@@ -120,27 +127,21 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Best DVD Decrypters for Mac - 100% Work to Rip Protected DVD Movies](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  How to Copy Protected DVD with a Mac DVD Decrypter 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Fixed: Can't Rip Sony DVDs with Bad Sectors](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -149,10 +150,7 @@ Related Articles
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Hot Products
@@ -160,19 +158,6 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tips and Tricks
 
@@ -212,19 +197,20 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-captivation-creator-for-articles/"><u>[New] Captivation Creator for Articles</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-the-art-of-locating-concealed-youtube-media/"><u>[New] In 2024, Mastering the Art of Locating Concealed YouTube Media</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-techniques-to-identify-proficient-filmmakers/"><u>[Updated] Techniques to Identify Proficient Filmmakers</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://discover-best.techidaily.com/exploring-digiartys-dvd-to-video-software-top-choice-in-digital-conversion/"><u>Exploring Digiarty's DVD-to-Video Software: Top Choice in Digital Conversion</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oneplus-ace-2v-drfone-by-drfone-android/"><u>How to Screen Mirroring OnePlus Ace 2V? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-infinix-smart-8-pro-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Infinix Smart 8 Pro</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-real-time-voice-to-action-no-price-tag/"><u>In 2024, Real-Time Voice to Action, No Price Tag</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-shedding-light-on-brighter-hdr-approaches-with-high-quality-luminosity/"><u>In 2024, Shedding Light on Brighter HDR Approaches with High-Quality Luminosity</u></a></li>
-<li><a href="https://discover-best.techidaily.com/step-by-step-tutorial-achieving-top-notch-sound-quality-in-voice-recording-on-windows-11/"><u>Step-by-Step Tutorial: Achieving Top-Notch Sound Quality in Voice Recording on Windows 11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-roadmap-to-proficiency-in-lut-construction/"><u>The Ultimate Roadmap to Proficiency in LUT Construction</u></a></li>
-<li><a href="https://discover-best.techidaily.com/top-3-gratis-video-herunterladern-fur-facebook-auf-windows-10-das-beste-aus-dem-jahr-2020/"><u>Top 3 Gratis Video Herunterladern Für Facebook Auf Windows 10 - Das Beste Aus Dem Jahr 2020</u></a></li>
-<li><a href="https://discover-best.techidaily.com/universal-format-transformer-seamlessly-convert-your-media-from-webm-to-mp4mp3mov-and-back-again/"><u>Universal Format Transformer: Seamlessly Convert Your Media From WebM to MP4/MP3/MOV & Back Again!</u></a></li>
-<li><a href="https://discover-best.techidaily.com/1725289433797-winxvideo-ai/"><u>Winxvideo AI를 사용하여 비디오 품질 클럽에 들어갑시다</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-boosting-zoom-hd-quality-step-by-step-guide-for-2024/"><u>[New] Boosting Zoom HD Quality Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-audacity-on-mac-a-beginners-guide-to-recording-audio/"><u>[Updated] In 2024, Audacity on Mac A Beginner's Guide to Recording Audio</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-free-high-definition-video-players-for-modern-operating-systems-top-picks/"><u>Best Free High-Definition Video Players for Modern Operating Systems: Top Picks</u></a></li>
+<li><a href="https://discover-best.techidaily.com/comprehensive-guide-to-editing-mov-videos-trimming-cropping-merging-and-beyond/"><u>Comprehensive Guide to Editing MOV Videos: Trimming, Cropping, Merging, and Beyond</u></a></li>
+<li><a href="https://discover-best.techidaily.com/gratis-download-von-imgburn-professionelle-software-zum-brennen-und-schreiben-kopierschutzbefreiter-dvds/"><u>Gratis Download Von ImgBurn - Professionelle Software Zum Brennen Und Schreiben Kopierschutzbefreiter DVDs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oppo-find-x7-ultra-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Oppo Find X7 Ultra to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-art-of-landing-a-tech-internship-comprehensive-insights-and-tips/"><u>Mastering the Art of Landing a Tech Internship: Comprehensive Insights and Tips</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/movavis-easy-and-no-cost-solution-to-transform-mp4-files-into-gif-format-online/"><u>Movavi's Easy and No-Cost Solution to Transform MP4 Files Into GIF Format Online</u></a></li>
+<li><a href="https://discover-best.techidaily.com/steps-to-upscale-and-upload-your-mkv-videos-on-youtube-with-optimal-quality/"><u>Steps to Upscale and Upload Your MKV Videos on YouTube with Optimal Quality</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-3-favorite-free-windows-10-dvd-players-of-2021-compatible-with-all-formats/"><u>Top 3 Favorite Free Windows 10 DVD Players of 2021 - Compatible with All Formats</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-6-avatars-dagrandissement-video-intelligents/"><u>Top 6 Avatars D’Agrandissement Vidéo Intelligents</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-assassins-creed-odyssey-how-to-stop-your-game-from-freezing/"><u>Troubleshooting Assassin's Creed Odyssey: How to Stop Your Game From Freezing</u></a></li>
+<li><a href="https://discover-best.techidaily.com/troubleshooting-guide-fixing-failed-video-decode-issue-in-windows-dvd-software/"><u>Troubleshooting Guide: Fixing Failed Video Decode Issue in Windows DVD Software</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722880494184-understanding-the-503-service-temporarily-unavailable-error-and-solutions/"><u>Understanding the '503 Service Temporarily Unavailable' Error & Solutions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-poco-f5-pro-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Poco F5 Pro 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 

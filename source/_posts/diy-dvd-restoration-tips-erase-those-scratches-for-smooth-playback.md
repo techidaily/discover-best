@@ -1,7 +1,7 @@
 ---
 title: "DIY DVD Restoration Tips: Erase Those Scratches for Smooth Playback!"
-date: 2024-10-05T16:21:11.947Z
-updated: 2024-10-11T23:54:10.662Z
+date: 2024-11-17T18:35:24.069Z
+updated: 2024-11-23T10:47:56.493Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/8a7e84630d3aca1d8a2601af719bff431bf93c02b2b4875663befca17245e9f8.jpg
@@ -27,25 +27,11 @@ So if your DVDs get scratched, getting a general knowledge of the DVD damage deg
 
 ![fix scratched dvd](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/fix-scratched-dvd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Make a Backup of DVD before It Gets Scratched/Broken
 
 MacX DVD Ripper Pro is able to remove scratches from DVD and play the DVD movie on Mac, Windows, iPhone, iPad by copying and ripping slightly scratched DVD to MP4, MOV and more with ease. 
 
 [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/btn-mac.png)](https://tools.techidaily.com/macxdvd/products/) [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/btn-win.png)](https://tools.techidaily.com/macxdvd/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 CONTENTS
 
@@ -54,13 +40,14 @@ CONTENTS
 * [How to Fix Severely Scratched DVD](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Judge If Your DVD Is Scratched Slightly or Severely
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Sightly scratched DVD:
 
@@ -83,6 +70,10 @@ In generally, if these situations emerge, you can find your DVD disc is in small
 
 [Failed to Rip DVD? All the Possible Fixes are Here >>](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Backup DVD to Prevent DVD Scratches 
 
 In fact, since DVD and Blu-ray can be easily damaged. So don't wait until your cherished physical movie library gets broken. The best way to preserve DVD is to back up DVD in advance to prevent any hurt to discs. To do this, a terrific DVD copy software, [**MacX DVD Ripper Pro**](https://tools.techidaily.com/macxdvd/products/) is highly suggested. 
@@ -90,10 +81,7 @@ In fact, since DVD and Blu-ray can be easily damaged. So don't wait until your c
 It allows users to digitize DVD collection, and rip DVD to MP4, MKV, AVI, WMV, MOV, etc at fast ripping speed without quality loss. And it also makes 1:1 copies of DVDs for backup regardless of any DVD protections such as Sony ARccOS, Disney X-project protection, region code, CSS, etc. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1:1 Backup DVD with MacX DVD Ripper Pro:
@@ -102,16 +90,13 @@ Free download and launch MacX DVD Ripper Pro > Click "+" icon to import DVD disc
 
 ![remove scratches from DVD](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/zxh-mdrp-061702.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Sometimes, you are informed of DVD bad sector error when playing the DVD movie. This is because of the copy protection encoded on the physical disc, most known for the DVD from Sony, to prevent DVD player from accessing to it. But you can also make full use of this DVD copy software to bypass those damaged errors.
 
 Related: [copy damaged DVD](https://tools.techidaily.com/macxdvd/products/), [copy DVD with bad sector](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Home Remedies to Fix Sightly Scratched DVD
 
@@ -124,6 +109,10 @@ To fix a DVD disc and get it playable again, you need some solutions to fill in 
 **3\. Banana.** Actually, it has been exaggerated on DVD scratch repair. You will rest satisfied with the function of cleaning the DVD instead of fixing scratched DVDs. Anyway, it can be used to fix DVD scratches with dusts and dirty marks. 
 
 **4\. Baking Soda & Toothpaste.** It does work on removing scratches from DVD, but not for the badly scratched DVD discs. When you place a dab of toothpaste or baking soda on the rub the paste into the scratch from the center of the DVD outward, you are essentially "sanding" down the imperfection on the surface of the polycarbonate plastic layer. To refrain from all these troubles, backup your DVD with [free DVD copy software](https://tools.techidaily.com/macxdvd/products/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## DVD Scratch Repair Machine to Fix Severe DVD Scratches
 
@@ -147,6 +136,10 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/article-seo/img1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Top 3 Free DVD Ripper for Mac to Convert DVD Discs Easily](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/article-seo/img2.jpg)
@@ -159,25 +152,11 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/article-seo/icon.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 
 Rip scratched DVD to MP4, MOV, MKV, etc for playing flawlessly on computer and mobile.
 
 [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/article-seo/fd.png)](https://tools.techidaily.com/macxdvd/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Trusted by Macworld,CNET
 
@@ -209,6 +188,10 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Company
 
 * [About Us >>](https://tools.techidaily.com/macxdvd/products/)
@@ -239,17 +222,20 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-streamline-your-audio-preferences-moving-spotify-playlists-to-youtube-music/"><u>[New] Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-innovation-unleashed-leading-professionals-360cameras/"><u>[Updated] Innovation Unleashed Leading Professionals’ 360°Cameras</u></a></li>
-<li><a href="https://discover-best.techidaily.com/afs-delivers-high-tech-shipping-innovations-and-financial-management-tools-amidst-expanding-enterprise/"><u>AFS Delivers High-Tech Shipping Innovations and Financial Management Tools Amidst Expanding Enterprise</u></a></li>
-<li><a href="https://discover-best.techidaily.com/automated-conversion-tracking-with-the-advanced-tools-of-cookiebot/"><u>Automated Conversion Tracking with the Advanced Tools of Cookiebot</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-driven-solutions-elevate-your-online-engagement-today/"><u>Cookiebot Driven Solutions - Elevate Your Online Engagement Today!</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-driven-automation-enhance-your-web-traffic-successfully/"><u>Cookiebot-Driven Automation: Enhance Your Web Traffic Successfully</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/craft-compelling-stories-with-ease-leveraging-chatgpts-storytelling-magic/"><u>Craft Compelling Stories with Ease – Leveraging ChatGPT's Storytelling Magic</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/cutting-edge-liquid-simulations-for-gamers/"><u>Cutting Edge Liquid Simulations for Gamers</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-for-correcting-code-19-error-messages-on-your-pc/"><u>Expert Tips for Correcting Code #19 Error Messages on Your PC</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-change-steams-default-language/"><u>How to Change Steam’s Default Language</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/optimizing-system-performance-how-to-tackle-high-cpu-utilization-by-svchostexe-in-windows-11/"><u>Optimizing System Performance: How to Tackle High CPU Utilization by svchost.exe in Windows 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/1726026711382-youtube/"><u>YouTube再生と録画の基本手順:テレビから始める初心者向けガイド</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-the-secrets-behind-youtube-shorts-success/"><u>[New] Unlocking the Secrets Behind YouTube Shorts Success</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-professionelle-winxvideo-ai-vollversion-kaufen-exklusives-upgrade-fur-premiumbenutzer/"><u>1. Professionelle WinxVideo-AI Vollversion Kaufen: Exklusives Upgrade Für Premiumbenutzer</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1725287275322-dvdmp4/"><u>DVDから高画質MP4へ簡単変換方法 - スピーディで正確</u></a></li>
+<li><a href="https://discover-best.techidaily.com/efficient-heic-to-jpeg-transformation-the-ultimate-guide-on-using-a-heic-converter/"><u>Efficient HEIC-to-JPEG Transformation: The Ultimate Guide on Using a HEIC Converter</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-video-watching-on-pc-free-media-player-extension-for-mov-formats/"><u>Enhance Video Watching on PC: Free Media Player Extension for MOV Formats!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932713-9781855843073-esoteric-christianity-and-the-mission-of-christian-rosenkreutz/"><u>Esoteric Christianity and the Mission of Christian Rosenkreutz | Free Book</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-3-innovative-streaming-solutions-for-switch/"><u>Explore 3 Innovative Streaming Solutions for Switch</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-100-pro-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 100 Pro by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/how-to-2023-convert-and-burn-your-files-to-dvd-with-handbrake-for-both-pc-and-mac-users/"><u>How-To 2023: Convert and Burn Your Files to DVD with HandBrake for Both PC and Mac Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/meilleures-applications-de-controle-video-pour-mac-et-apple-tv-les-top-5-selectionnes/"><u>Meilleures Applications De Contrôle Vidéo Pour Mac Et Apple TV: Les Top 5 Sélectionnés</u></a></li>
+<li><a href="https://network-issues.techidaily.com/straightforward-correction-dormant-gpu-with-nvidia/"><u>Straightforward Correction: Dormant GPU with NVIDIA</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/top-rated-free-proxy-and-mirror-websites-access-content-without-restrictions/"><u>Top-Rated Free Proxy & Mirror Websites: Access Content Without Restrictions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transcodificacion-sin-perdidas-de-calidad-conversion-de-hevc-a-mp4-explicada/"><u>Transcodificación Sin Pérdidas De Calidad - Conversión De HEVC a MP4 Explicada</u></a></li>
 </ul></div>
 

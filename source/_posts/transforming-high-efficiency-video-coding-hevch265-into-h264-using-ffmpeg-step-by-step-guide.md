@@ -1,7 +1,7 @@
 ---
 title: "Transforming High-Efficiency Video Coding (HEVC/H.265) Into H.264 Using FFmpeg: Step-by-Step Guide"
-date: 2024-10-10T20:05:30.950Z
-updated: 2024-10-11T23:36:55.662Z
+date: 2024-11-21T18:04:26.217Z
+updated: 2024-11-23T03:14:41.941Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/9a1d2889cbe4ad14880fa77a388cff944d010380f4cf0a1f83bd01829ce96a1e.jpg
@@ -24,18 +24,24 @@ _Follow the FFmpeg tutorial to transcode H.265 to H.264\. Also, an easier way to
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon6.png) By [Candice Liu](https://tools.techidaily.com/macxdvd/products/) ｜Last updated on Aug 15, 2023
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-fa.jpg)](https://www.facebook.com/sharer/sharer.php?u=https://www.macxdvd.com/mac-dvd-video-converter-how-to/convert-h265-to-h264-ffmpeg.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-tw.jpg)](https://twitter.com/intent/tweet?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/convert-h265-to-h264-ffmpeg.htm&text=)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-go.jpg)](https://pinterest.com/pin/create/button/?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/convert-h265-to-h264-ffmpeg.htm&media=&description=)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/convert-h265-to-h264-ffmpeg.htm&title=&summary=&source=)
 
 We should know the leading video codec, called HEVC/H.265, which replaces the previous standard most commonly used AVC/H.264 on Mac and iOS devices. It's amazing that H265 outputs better visual quality and occupies smaller storage on iPhone. But if you attempt to play HEVC/H.265 4K on Mac El Capitan, Sierra, iOS 10 or earlier, it will result in "unable to play the file" error. In this case, you need to convert HEVC/H.265 to H.264.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Convert H265 to H264 FFmpeg? An Easier Way Here!
@@ -49,6 +55,10 @@ We should know the leading video codec, called HEVC/H.265, which replaces the pr
 * [Part 1\. How to Convert HEVC/H.265 MKV Video to AVC/H.264 MP4 with FFmpeg](https://tools.techidaily.com/macxdvd/products/)
 * [Part 2\. An Easier Way to Convert HEVC/H265 to H264](https://tools.techidaily.com/macxdvd/products/)
 * [Part 3\. FAQs about HEVC to H.264 in FFmpeg](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Convert HEVC/H.265 MKV Video to AVC/H.264 MP4 with FFmpeg
 
@@ -70,13 +80,6 @@ If you'd like to batch convert HEVC to H265 and set other paramters, you need ty
 * This example assumes your inputs are .mkv. If not, change the .mkv instance in the example to your input file type, or just use the greedy \* by itself.
 * See note above regarding -crf and -preset.
 * You can pause the encoding with ctrl+z and resume with fg.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## An Easier Way to Convert HEVC/H265 to H264 
 
@@ -149,41 +152,18 @@ ABOUT THE AUTHOR
 
 [Candice Liu ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in1.jpg)](https://www.linkedin.com/in/candice-liu-444483a3/) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Candice's particularly skilled in writing and sharing video-related contents. Her guides cover from deep-seated video/audio parameters, to media entertainment on different platforms. She also enjoys shooting and processing videos by herself for a more reliable basis of informative info with her articles, which are never at the expense of eliminating an entertaining read.
 
 Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Best Free HEVC H.264 Decoder Program](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [15 Best Video Converters for Mac Reviews \[Free & Paid\]](https://tools.techidaily.com/macxdvd/products/) 
@@ -191,10 +171,7 @@ Related Articles
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Handbrake Tutorial: How to Decode X265 to X264 Fast](https://tools.techidaily.com/macxdvd/products/) 
@@ -205,6 +182,10 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Simple Solution to Convert MKV to HEVC for Faster Uploading to YouTube](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
@@ -214,13 +195,6 @@ Related Articles
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
 ### Hot Products
@@ -229,6 +203,10 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tips and Tricks
 
 * [DVD Topics >>](https://tools.techidaily.com/macxdvd/products/)
@@ -236,6 +214,10 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Company
 
@@ -267,24 +249,20 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-elite-driving-sims-best-five-titles/"><u>[New] 2024 Approved Elite Driving Sims Best Five Titles</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-ultimate-screen-recorder-a-2023-evaluation-of-camstudio/"><u>[New] 2024 Approved The Ultimate Screen Recorder A 2023 Evaluation of CamStudio</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-your-videos-the-pathway-to-streamlined-cc-and-subtitling-on-youtube/"><u>[New] 2024 Approved Unlocking Your Videos The Pathway to Streamlined CC & Subtitling on YouTube</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-driven-personalization-elevate-digital-campaigns-and-seo-strategies/"><u>Cookiebot Driven Personalization: Elevate Digital Campaigns & SEO Strategies</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-personalized-experiences-tailored-advertising-solutions/"><u>Cookiebot-Enabled Personalized Experiences | Tailored Advertising Solutions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/digital-entertainment-preservation-online-tv-show-recording-101/"><u>Digital Entertainment Preservation Online TV Show Recording 101</u></a></li>
-<li><a href="https://discover-best.techidaily.com/elevate-your-digital-presence-using-advanced-cookiebot-solutions/"><u>Elevate Your Digital Presence Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-best.techidaily.com/experience-advanced-analytics-with-cookiebot-technology/"><u>Experience Advanced Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-for-starcraft-ii-game-crashing-issues-on-desktop-computers/"><u>Fixes for Starcraft II Game Crashing Issues on Desktop Computers</u></a></li>
-<li><a href="https://discover-best.techidaily.com/fournissez-des-capacites-cognitives-aux-travailleurs-numeriques-avec-abbyy-vantage/"><u>Fournissez Des Capacités Cognitives Aux Travailleurs Numériques Avec ABBYY Vantage</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Infinix Smart 7 HD? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/immersion-in-the-most-realistic-water-games/"><u>Immersion in the Most Realistic Water Games</u></a></li>
-<li><a href="https://discover-best.techidaily.com/leveraging-advanced-technology-for-social-good-abbyy-partners-with-forhumanity-to-foster-autonomous-ai-monitoring-systems/"><u>Leveraging Advanced Technology for Social Good: ABBYY Partners With ForHumanity to Foster Autonomous AI Monitoring Systems</u></a></li>
-<li><a href="https://discover-best.techidaily.com/m-files-enhances-auto-management-with-abbyys-ai-tech-for-advanced-information-control/"><u>M-Files Enhances Auto-Management with ABBYY's AI Tech for Advanced Information Control</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/no-cost-audio-treasure-trove-for-video-endings-for-2024/"><u>No-Cost Audio Treasure Trove for Video Endings for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/revolutionize-your-workflow-with-abbyys-latest-breakthrough-in-corporate-efficiency-meet-abbyy-vantage/"><u>Revolutionize Your Workflow with ABBYY's Latest Breakthrough in Corporate Efficiency - Meet ABBYY Vantage™</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-3-essential-gadgets-to-preserve-the-pristine-condition-of-your-iphone-13-insights/"><u>Top 3 Essential Gadgets to Preserve the Pristine Condition of Your iPhone 13 - Insights</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-continuous-loading-screens-in-among-us-gameplay/"><u>Troubleshooting Continuous Loading Screens in Among Us Gameplay</u></a></li>
-<li><a href="https://discover-best.techidaily.com/utilizing-cookiebot-technology-for-tailored-website-interactions/"><u>Utilizing Cookiebot Technology for Tailored Website Interactions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-immediate-window-image-on-pc-win-for-2024/"><u>[New] Immediate Window Image on PC (Win) for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[New] In 2024, Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-reviving-dull-images-the-most-effective-10-web-editing-aids/"><u>2024 Approved Reviving Dull Images The Most Effective 10 Web Editing Aids</u></a></li>
+<li><a href="https://discover-best.techidaily.com/einfache-anleitung-zum-hochladen-von-dvds-auf-plex-top-tipps-fur-den-perfekten-stream/"><u>Einfache Anleitung Zum Hochladen Von DVDs Auf Plex - Top Tipps Für Den Perfekten Stream</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guide-switching-netflix-languages-across-all-your-gadgets/"><u>Guide: Switching Netflix Languages Across All Your Gadgets</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-tecno-pova-5-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Tecno Pova 5 to Protect Your Individual Information</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-honor-magic-v2-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Honor Magic V2 Phone Now with These Tips</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/limited-time-offer-score-a-discounted-amazon-fire-tablet-at-just-50-during-labor-day-exclusive-trade-in-special/"><u>Limited Time Offer: Score a Discounted Amazon Fire Tablet at Just $50 During Labor Day - Exclusive Trade-In Special</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-freezing-optimize-your-pc-for-a-smooth-witcher-n-experience/"><u>No More Freezing: Optimize Your PC for a Smooth 'Witcher N Experience</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-the-persistent-windows-update-error-0x800705b4-in-windows-11-effective-solutions/"><u>Resolving the Persistent 'Windows Update Error 0X800705B4' In Windows 11: Effective Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/spielt-die-xbox-one-noch-dvds-ab-detaillierte-anleitung-zur-reparatur-ihrer-konsole/"><u>Spielt Die Xbox One Noch DVDs Ab? Detaillierte Anleitung Zur Reparatur Ihrer Konsole</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transformacion-definitiva-del-avi-al-mkv-tutoriales-detallados-para-la-conversion-perfecta/"><u>Transformación Definitiva Del AVI Al MKV: Tutoriales Detallados Para La Conversión Perfecta</u></a></li>
+<li><a href="https://discover-best.techidaily.com/transformez-vos-videos-wmv-en-mp4-sans-perturber-leur-quality-solution-avancee-a-98-defficacite/"><u>Transformez Vos Vidéos WMV en MP4 Sans Perturber Leur Quality : Solution Avancée À 98% D'Efficacité</u></a></li>
+<li><a href="https://discover-best.techidaily.com/ultimate-guide-high-quality-mp4-compression-techniques/"><u>Ultimate Guide: High-Quality MP4 Compression Techniques</u></a></li>
+<li><a href="https://discover-best.techidaily.com/kinki-kidsking-and-prince/"><u>ジャニーズ系アーティストのライブ映像ダウンロードガイド: KinKi Kids、King & Prince含む最新手法</u></a></li>
 </ul></div>
 

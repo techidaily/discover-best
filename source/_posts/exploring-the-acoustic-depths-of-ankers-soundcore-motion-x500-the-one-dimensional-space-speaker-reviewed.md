@@ -1,7 +1,7 @@
 ---
 title: Exploring the Acoustic Depths of Anker's SoundCore Motion X500 – The One-Dimensional Space Speaker Reviewed
-date: 2024-10-19T16:59:48.231Z
-updated: 2024-10-23T16:26:49.902Z
+date: 2024-11-15T21:15:11.013Z
+updated: 2024-11-22T21:52:47.333Z
 tags:
   - product-reviews
 categories:
@@ -10,6 +10,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 ---
 
 ## Exploring the Acoustic Depths of Anker's SoundCore Motion X500 – The One-Dimensional Space Speaker Reviewed
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -59,22 +63,12 @@ The Soundcore Motion X500 features Hi-Res wireless audio and three-channel spati
 [$169.99 at Soundcore](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x500-a3131011&ourl=https%3A%2F%2Fus.soundcore.com%2Fproducts%2Fmotion-x500-launch-bonus) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##  Spatial Audio By Design
 
 ![close up of the top of the Soundcore Motion X500 showing control buttons](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/close-up-of-the-top-of-the-soundcore-motion-x500-showing-control-buttons.JPG) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
 
@@ -91,10 +85,7 @@ Tyler Hayes / How-To Geek
 ![Soundcore Motion X500 outside facing forward](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/soundcore-motion-x500-outside-facing-forward.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
@@ -121,22 +112,23 @@ Close
 
  Normally, a section would be dedicated to a device's mobile app. In this case, functions and features for the Motion X500 in the Soundcore app are minimal. The app is available for [iPhone](https://apps.apple.com/us/app/soundcore/id1331876603) and [Android](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2000903/https://play.google.com/store/apps/details?id=com.oceanwing.soundcore&hl=en%5FUS&gl=US) but only offers an EQ and a few customizable options for the light brightness of the buttons. (Everything is contained in two screens.) Beyond using it for firmware updates, the app might not even be worth downloading to use with this particular speaker.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Battery Life Is a Tentative Thumbs-Up
 
 ![Charging port on Soundcore Motion X500](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/charging-port-on-soundcore-motion-x500.JPG) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
 
  If the Motion X500 is more useful as a portable speaker than a spatial audio one, battery life is key. The advertised 12 hours of battery rang true in my constant usage. It’s hard not to wish for even more power, but given the roughly 7.5-inch width and 3.5 pounds of the unit, the play time seems proportional.
 
  The speaker charges via a rubber-seal-protected USB-C port and I had no problem with it, though its six-hour recharge time felt a little long. The problem I had with the device's battery was that there was no good way to tell how much listening time was left. The only power level was in the Soundcore app, but it didn't show a percentage, only a small icon that was not helpful.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Motion X500 Price and Availability
 
@@ -175,17 +167,22 @@ The Soundcore Motion X500 features Hi-Res wireless audio and three-channel spati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-youtube-to-wav-file-4-best-free-convert-solutions/"><u>[New] In 2024, YouTube to WAV File 4 Best Free Convert Solutions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-expertly-curated-facebooks-1-10-plays-for-2024/"><u>[Updated] Expertly Curated Facebook's #1-#10 Plays for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-bypassing-hurdles-seamless-pc-file-integration-tips-and-tricks/"><u>[Updated] In 2024, Bypassing Hurdles Seamless PC File Integration Tips and Tricks</u></a></li>
-<li><a href="https://discover-best.techidaily.com/fast-and-easy-ipad-conversion-suite-expert-dvd-ripping-and-video-converting-solution-for-apple-tablets-via-mac/"><u>Fast & Easy iPad Conversion Suite: Expert DVD Ripping & Video Converting Solution for Apple Tablets via Mac</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-samsung-galaxy-m34-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Samsung Galaxy M34 5G ?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-1-tiktok-videos-that-trended-on-twitter/"><u>In 2024, 1 TikTok Videos That Trended on Twitter</u></a></li>
-<li><a href="https://discover-best.techidaily.com/mp4-video-compression-guide-for-windows-10-and-macos-users/"><u>MP4 Video Compression Guide for Windows 10 and macOS Users</u></a></li>
-<li><a href="https://discover-best.techidaily.com/seamless-transfer-of-audio-files-iphone-to-macbook-airpro-and-imac-strategies/"><u>Seamless Transfer of Audio Files: IPhone to Macbook Air/Pro & iMac Strategies</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategic-tips-to-optimize-amd-radeon-gaming/"><u>Strategic Tips to Optimize AMD Radeon Gaming</u></a></li>
-<li><a href="https://discover-best.techidaily.com/transform-your-favorite-4k-youtube-music-into-premium-mp3-files/"><u>Transform Your Favorite 4K YouTube Music Into Premium MP3 Files</u></a></li>
-<li><a href="https://discover-best.techidaily.com/ultimate-selection-of-exercise-tapes-perfect-for-achieving-peak-physical-health-from-the-comfort-of-home/"><u>Ultimate Selection of Exercise Tapes Perfect for Achieving Peak Physical Health From the Comfort of Home</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/untangling-veiled-feedback-mechanisms-in-video-sites-for-2024/"><u>Untangling Veiled Feedback Mechanisms in Video Sites for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-detailed-guide-to-screen-record-skype-via-obs/"><u>[Updated] 2024 Approved Detailed Guide to Screen Record Skype via OBS</u></a></li>
+<li><a href="https://discover-best.techidaily.com/1-free-mkv-makers-beta-access-top-sites-for-no-cost-dvd-conversion-and-streaming/"><u>1. Free MKV Makers' Beta Access: Top Sites for No-Cost DVD Conversion & Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-free-youtube-spotlight-with-two-key-approaches/"><u>2024 Approved Free YouTube Spotlight with Two Key Approaches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-leading-10-decibel-leveler-apps-for-all-os/"><u>2024 Approved Leading 10 Decibel Leveler Apps for All OS</u></a></li>
+<li><a href="https://discover-best.techidaily.com/einfachheit-bei-der-umwandlung-von-videoinhalten-von-dvds-konvertierungsanleitungen-speziell-fur-den-apple-ecosystem-mac-iphone-ipad-and-ipod/"><u>Einfachheit Bei Der Umwandlung Von Videoinhalten Von DVDs - Konvertierungsanleitungen Speziell Für Den Apple-Ecosystem (Mac, iPhone, iPad & iPod)</u></a></li>
+<li><a href="https://discover-best.techidaily.com/fixing-handbrake-errors-successful-dvd-conversion-tips/"><u>Fixing Handbrake Errors: Successful DVD Conversion Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-engage-end-task-capability-on-your-windows-11-computer/"><u>Guide to Engage End Task Capability on Your Windows 11 Computer</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-virtual-reality-can-transform-ordinary-spaces-into-extraordinary-adventures/"><u>How Virtual Reality Can Transform Ordinary Spaces Into Extraordinary Adventures</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-pro-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Pro with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-nokia-c210-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Nokia C210 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://discover-best.techidaily.com/mac-based-m4v-format-conversion-transforming-files-into-mp4-avi-and-mkv/"><u>Mac-Based M4V Format Conversion: Transforming Files Into MP4, AVI & MKV</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://discover-best.techidaily.com/seamlessly-combining-multiple-dvd-content-into-one-unified-disc/"><u>Seamlessly Combining Multiple DVD Content Into One Unified Disc</u></a></li>
+<li><a href="https://discover-best.techidaily.com/streamline-media-playback-with-macx-converter-transform-dvd-content-into-apple-tv-compatible-videos-for-mac-users/"><u>Streamline Media Playback with MacX Converter: Transform DVD Content Into Apple TV Compatible Videos for Mac Users</u></a></li>
+<li><a href="https://discover-best.techidaily.com/the-ultimate-guide-to-marvels-must-watch-movies-best-picks-from-2016-2022/"><u>The Ultimate Guide to Marvel's Must-Watch Movies: Best Picks From 2016-2022</u></a></li>
+<li><a href="https://discover-best.techidaily.com/top-classic-christmas-films-comprehensive-collection-free-download-spanning-centuries/"><u>Top Classic Christmas Films: Comprehensive Collection Free Download Spanning Centuries</u></a></li>
 </ul></div>
 

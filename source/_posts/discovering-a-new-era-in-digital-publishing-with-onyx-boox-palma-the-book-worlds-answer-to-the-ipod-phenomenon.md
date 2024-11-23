@@ -1,7 +1,7 @@
 ---
 title: Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
-date: 2024-10-23T10:52:42.183Z
-updated: 2024-10-29T12:43:15.041Z
+date: 2024-11-16T17:36:57.558Z
+updated: 2024-11-23T00:53:05.015Z
 tags:
   - product-reviews
 categories:
@@ -10,6 +10,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 ---
 
 ## Discovering a New Era in Digital Publishing with Onyx Boox Palma - The Book World's Answer to the iPod Phenomenon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -83,15 +87,16 @@ Expand
 [$279.99 at B&H Photo Video](https://www.bhphotovideo.com/c/product/1783278-REG/boox%5Fopc1084r%5F6%5F13%5Fpalma%5Fe%5Fink%5Ftablet.html/BI/22163/KBID/28708/SID/UUhtgUeUpU2000937?ap=y&amp%3Bsmp=y&amp%3Bsrsltid=AfmBOorHmCCXNHSZEAzABaZ%5FpFFt2aB6PPotGsLhGms2XyMsNtwLo1r9pIQ) [$279.99 at Boox](https://shareasale.com/r.cfm?b=2531318&u=4338022&m=153349&urllink=https%3A%2F%2Fbluettieu.pxf.io%2Fnlgoka&afftrack=techidaily) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##  The Design of a Palm-Sized EReader
 
 ![button and sd card tray on the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/button-and-sd-card-tray-on-the-onyx-boox-palma_53279720818_o.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -107,23 +112,9 @@ Sergio Rodriguez / How-To Geek
 
  A left-side button can be customized, but, by default, is set to refresh the screen when pressed. All these items worked together well to form an ultra-compact reading device. If the width feels too narrow, you can hold it sideways and let the text rotate. I used this layout occasionally and found it helpful for certain styles of writing which had longer sentences.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Boox Palma Software: A Small E-Paper Tablet
 
 ![home screen of the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/home-screen-of-the-onyx-boox-palma_53278546217_o.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -132,13 +123,6 @@ Sergio Rodriguez / How-To Geek
  Thankfully, Palma’s monochrome E-Ink screen isn’t interesting enough to be a full-featured tablet running Android 11—at least it wasn't for me. I never felt compelled to set up my email. I didn’t try and run Slack. I didn’t use it for Spotify. Even its ability to scan documents with its built-in camera was lackluster enough not to be tempted. The experience of trying to move quickly through an interface hampered by screen refresh times is usually painful after a small amount of time.
 
  All these things are possible if you want them badly enough. I’m happy they’re available to address a wide range of people’s needs. Importantly, though, those things didn’t get in the way of the Palma being a solid, Wi-Fi-connected eReader for me.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  Is the Boox Palma a Phone?
 
@@ -156,6 +140,10 @@ The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
 
  I agree with Onyx that it is phone-like. But, ultimately, to get the most value out of it, you should just think of it as a compact eReader.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Boox Palma Battery Life
 
  The Boox Palma's battery life will vary heavily depending on what you’re using it for. As an eReader, it should get you somewhere between seven and nine days of use. With more Wi-Fi, Bluetooth, and other app usage, that will probably go down to just a couple of days. I never felt like I had to monitor the battery level too closely. If you do want a constant gauge, an estimate of the amount of time remaining for battery power is available in the settings.
@@ -167,6 +155,10 @@ The Boox Palma (left) is about the size of the Samsung Galaxy s22 Ultra.
 ##  Should You Buy the Boox Palma?
 
 ![reading on the onyx boox palma](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/reading-on-the-onyx-boox-palma_53279899430_o.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -245,22 +237,20 @@ Expand
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-precision-close-up-techniques-with-kinemaster-software/"><u>[Updated] 2024 Approved Precision Close-Up Techniques with Kinemaster Software</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-voice-memo-creation-on-apple-devices/"><u>[Updated] Effortless Voice Memo Creation on Apple Devices</u></a></li>
-<li><a href="https://discover-best.techidaily.com/high-performance-smartwatches-mastering-watchos-and-wear-os-at-60-fps-insights-from-the-abbyy-tech-team/"><u>High-Performance Smartwatches: Mastering WatchOS & Wear OS at 60 FPS - Insights From the ABBYY Tech Team</u></a></li>
-<li><a href="https://discover-best.techidaily.com/introducing-abbyy-finereader-server-the-new-face-of-previously-known-abbyy-recognition/"><u>Introducing ABBYY FineReader Server - The New Face of Previously Known ABBYY Recognition</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/leveraging-filters-masks-and-effects-to-elevate-conference-calls-for-2024/"><u>Leveraging Filters, Masks & Effects to Elevate Conference Calls for 2024</u></a></li>
-<li><a href="https://discover-best.techidaily.com/luxembourg-based-deloitte-enhances-client-services-through-strategic-abbyy-collaboration/"><u>Luxembourg-Based Deloitte Enhances Client Services Through Strategic ABBYY Collaboration</u></a></li>
-<li><a href="https://discover-best.techidaily.com/master-your-nighttime-routine-with-aabbs-insights-on-call-blocking-restful-sleep-and-selecting-the-perfect-film/"><u>Master Your Nighttime Routine with AABB's Insights on Call Blocking, Restful Sleep & Selecting the Perfect Film</u></a></li>
-<li><a href="https://discover-best.techidaily.com/maximizing-business-outcomes-with-cutting-edge-ai-and-content-analytics-expertise-from-the-abbyy-perspective/"><u>Maximizing Business Outcomes with Cutting-Edge AI and Content Analytics | Expertise From the ABBYY Perspective</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/maximizing-storage-on-your-iphone-a-step-by-step-guide-to-free-up-gigabytes-techtips/"><u>Maximizing Storage on Your iPhone: A Step-by-Step Guide to Free Up Gigabytes | TechTips</u></a></li>
-<li><a href="https://discover-best.techidaily.com/model-a-1908-6-fixed-rear-sight-no-firing-pin-block-or-safety-feature-unfluted-grip/"><u>Model A - 1908-6, Fixed Rear Sight, No Firing Pin Block or Safety Feature, Unfluted Grip</u></a></li>
-<li><a href="https://discover-best.techidaily.com/optimize-your-enterprise-transformation-journey-through-process-intelligence-techniques/"><u>Optimize Your Enterprise Transformation Journey Through Process Intelligence Techniques</u></a></li>
-<li><a href="https://discover-best.techidaily.com/optimizing-online-presence-with-cookiebot-technology/"><u>Optimizing Online Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-nokia-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Nokia</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/real-mac-users-review-in-video-format/"><u>Real Mac Users Review in Video Format</u></a></li>
-<li><a href="https://discover-help.techidaily.com/resolving-the-mystery-temporary-blackout-on-windows-11-screens-discover-15-effective-solutions/"><u>Resolving the Mystery: Temporary Blackout on Windows 11 Screens - Discover 15 Effective Solutions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-rated-apple-computers-of-2024-expert-reviews-by-zdnet/"><u>Top-Rated Apple Computers of 2024 - Expert Reviews by ZDNet</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-dac-should-it-be-part-of-your-audio-setup/"><u>Understanding DAC: Should It Be Part of Your Audio Setup?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-mastering-screen-capture-bandicam-vs-camtasia-battle/"><u>2024 Approved Mastering Screen Capture Bandicam Vs. Camtasia Battle</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pinnacle-selections-prolific-iphone-tone-innovators/"><u>2024 Approved Pinnacle Selections Prolific iPhone Tone Innovators</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/closing-an-outdated-linkedin-profile-a-step-by-step-guide/"><u>Closing an Outdated LinkedIn Profile A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comparative-analysis-of-best-heic-conversion-tools-a-must-read-review/"><u>Comparative Analysis of Best HEIC Conversion Tools - A Must-Read Review!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-amazon-basics-tablet-support-the-ultimate-travel-companion/"><u>Evaluating the Amazon Basics Tablet Support: The Ultimate Travel Companion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-capture-and-store-5-best-ways-to-save-your-favorite-facebook-videos/"><u>In 2024, Capture & Store 5 Best Ways to Save Your Favorite Facebook Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastery-of-video-dimensions-achieving-balanced-facebook-posts-for-2024/"><u>Mastery of Video Dimensions Achieving Balanced Facebook Posts for 2024</u></a></li>
+<li><a href="https://discover-best.techidaily.com/optimized-with-advanced-analytics-the-strength-of-cookiebot-technology/"><u>Optimized with Advanced Analytics: The Strength of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/partnerschaft-zwischen-deloitte-luxemburg-und-abbyy-endet-pionierlosungen-zur-steigerung-der-prozessautomatisierung/"><u>Partnerschaft Zwischen Deloitte Luxemburg Und ABBYY Endet – Pionierlösungen Zur Steigerung Der Prozessautomatisierung</u></a></li>
+<li><a href="https://discover-best.techidaily.com/personalized-user-experience-with-cookiebot-technology/"><u>Personalized User Experience with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-best.techidaily.com/pioneering-leader-rusty-james-chosen-by-abbyy-to-spearhead-growth-in-the-americas-region/"><u>Pioneering Leader Rusty James Chosen by ABBYY to Spearhead Growth in the Americas Region</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionary-aiby-unveils-cutting-edge-cloud-infrastructure-with-smart-ai-features-to-accelerate-knowledge-management/"><u>Revolutionary AIBY Unveils Cutting-Edge Cloud Infrastructure with Smart AI Features to Accelerate Knowledge Management</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-the-insurance-industry-ai-driven-underwriting-solutions/"><u>Revolutionizing the Insurance Industry: AI-Driven Underwriting Solutions</u></a></li>
+<li><a href="https://discover-best.techidaily.com/streamlining-core-operations-with-abbyy-software-at-banque-populaire-de-louest-unveiled-in-latest-update/"><u>Streamlining Core Operations with ABBYY Software at Banque Populaire De L'Ouest Unveiled in Latest Update</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-to-creating-catchy-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters-for-2024/"><u>The Ultimate Guide to Creating Catchy Youtube Channel Titles For Blogging & Filming (No More than 156 Characters) for 2024</u></a></li>
 </ul></div>
 
